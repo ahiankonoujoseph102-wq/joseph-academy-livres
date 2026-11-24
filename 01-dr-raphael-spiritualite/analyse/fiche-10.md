@@ -38,7 +38,16 @@ prochaine masterclass**.
 - **Définition** : la dîme est **une recommandation divine, pas une loi**. **Ne pas la payer n'est pas un péché**, mais une bénédiction y est attachée. Dieu marche par alliance.
 - Lecture de Malachie 3, versets 10 et 11. La dîme sert à **nourrir la maison de Dieu** et à **rémunérer les hommes de Dieu**. Reproche aux fidèles « ingrats » qui veulent des prières rapides sans soutenir leur pasteur. Il dit avoir longtemps refusé la dîme.
 - **La dîme de la dîme** : un homme de Dieu doit lui aussi payer la dîme de sa dîme à son père spirituel. C'est « le secret » de la croissance d'une église.
-- **(14:25 → 27:36 : passage non transcrit, voir point 5.)**
+- **(14:20 → 27:36, passage retranscrit à part)** :
+  - La dîme est « une impérieuse… bon, **quasi-obligation** » (il se reprend en direct).
+  - Malachie 3, verset 11 : **les « dévoreurs »** sont des personnes qui se « connectent » spirituellement à ton argent ou à ton « étoile », par exemple par le rapport sexuel. « Fais attention avec qui tu couches. »
+  - **La dîme « par chrono »** : prélever la dîme à chaque entrée d'argent, le jour même, sans attendre la fin du mois. Si on a deux ou trois activités, payer la dîme de chacune.
+  - **Les prémices** en début d'année, « pour commander tout ce que tu recevras dans l'année » (annoncé, pas développé).
+  - **Devenir riche par les 90 %** : retirer les 10 % « enlève le bouchon », la bénédiction descend sur les 90 %. Les 90 % sont **une semence** : il faut **les investir** (étude de marché, activité rentable, revenus passifs). Un salaire fixe ne rend pas riche ; une activité, si.
+  - Exemple de Malachie 3 : sans protection, on achète cher en janvier et on vend à perte en mars ; avec la dîme, Dieu « menace » la mauvaise saison.
+  - L'homme de Dieu a « la machine », le fidèle « la matière première » : il peut avoir « l'esprit de richesse » sans être riche lui-même.
+  - **Conditions** : donner à un homme de Dieu **qui prie pour toi et t'enseigne**, avec qui on a un lien ; pas dans « une église au hasard ». Si les 90 % ne couvrent pas les dépenses, réduire les dépenses ou chercher un autre revenu.
+  - Il annonce que la gestion des 90 % se complète par « le mystère de l'argent » (session 2).
 - **À qui donner la dîme** : à un homme de Dieu dont on est **convaincu** que Dieu l'utilise, qu'on « sent » comme son père. Si on l'envoie directement à l'homme de Dieu, il prie lui-même dessus.
 - **Les esprits opposants** : dans certaines églises, des « sorciers » (y compris diacres, prêtres, enfants de chœur) bloquent le résultat de la dîme, comme une graine semée dans une mauvaise terre. Si on dépose la dîme dans un tronc, **la consacrer avant** (renvoi à la vidéo de consécration, voir fiche 09).
 - Un « esprit de guérison » passe dans chaque église (d'où la bouteille d'eau au pied de la chaire).
@@ -53,11 +62,11 @@ prochaine masterclass**.
 
 **Oui.** La vidéo s'arrête sur « Voilà, il faut qu'il… » (33:34).
 
-**Trou dans la transcription : de 14:25 à 27:36, environ 13 minutes**
-ne sont pas transcrites (le logiciel a produit une seule ligne absurde
-pour tout ce passage). **À retranscrire séparément** après la vidéo 11.
-Ce passage contient sans doute la suite de Malachie 3 et l'usage des
-90 %.
+**Trou dans la première transcription : de 14:25 à 27:36**, le
+logiciel avait produit une seule ligne absurde. **Ce passage a été
+retranscrit à part** (sans filtre de silence) et inséré dans
+`transcription-10.md`, entre deux mentions en gras. L'audio de ce
+passage est normal (volume moyen −21 dB) : l'échec venait du logiciel.
 
 **Montage désordonné** : le passage sur les « esprits opposants » et
 « la bouteille de guérison » apparaît deux fois (28:00 et 31:00). Ne
@@ -70,8 +79,9 @@ répété, et 13 minutes illisibles pour le logiciel.
 
 ## Passages problématiques pour un livre publié
 
-- **Contradiction avec la vidéo 09** : ici « ne pas payer la dîme n'est pas un péché, c'est une recommandation » ; dans la vidéo 09, « nous sommes obligés de payer la dîme ». **L'auteur doit trancher.** La position de la vidéo 10 est la plus prudente.
+- **Contradiction avec la vidéo 09** : ici « ne pas payer la dîme n'est pas un péché, c'est une recommandation », puis « quasi-obligation » ; dans la vidéo 09, « nous sommes obligés de payer la dîme ». **L'auteur doit trancher.** La position de la vidéo 10 est la plus prudente.
 - **Un nom de personne réelle** (une famille du Bénin liée à la Kabbale) : à retirer.
-- « Par le rapport sexuel, tu peux appeler à l'existence les choses » (05:10) : à retirer ou à faire préciser par l'auteur.
+- « Par le rapport sexuel, tu peux appeler à l'existence les choses » (05:10) ; les « dévoreurs » qui se connectent à ton argent par le sexe (15:00) : à retirer ou à faire préciser par l'auteur.
+- « Un salarié ne deviendra jamais riche » : affirmation absolue, à nuancer.
 - Les « sorciers » parmi les diacres, prêtres et enfants de chœur : accusation générale qui peut blesser des lecteurs.
 - Le reproche aux fidèles qui ne paient pas : ton de prêche, à adoucir dans un livre.

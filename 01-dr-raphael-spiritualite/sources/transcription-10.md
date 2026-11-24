@@ -822,13 +822,645 @@
 
 [00:14:20 → 00:14:25] C'est une impérieuse oblige que je peux avancer ici.
 
-[00:14:25 → 00:14:41] Alors, mais la Bible dit
+**[Passage 14:20 → 27:36 retranscrit séparément : sans filtre de silence, sans conditionnement sur le texte précédent. La première transcription avait échoué sur ce passage.]**
 
-[00:14:41 → 00:21:55] qu'il y a des sélections chères en janvier,
+[00:14:20 → 00:14:24] La Dîme, c'est une impérieuse, oblig, bon, quasi obligation, obligation.
 
-[00:21:55 → 00:23:57] sachant que en mars que la manette est devenue riche, là.
+[00:14:24 → 00:14:30] Est-ce que je peux avancer ici ? Alors, maintenant, la Bible dit que si tu payes la Dîme, pour voir si Dieu ne répondra pas à la bénédiction sur vous en abondance, d'accord ?
 
-[00:23:57 → 00:24:02] C'est dans l'occurrence où il n'y a plus précisément le commerce,
+[00:14:30 → 00:14:37] Et, il dit dans le verset 11 que, dans le verset 11 que, pour vous, je m'en assurer que celui qui dévore et il ne voudra pas les fruits de la terre.
+
+[00:14:37 → 00:14:41] Il y a des personnes qui disent qu'il n'arrive pas à prospérer, qu'il n'arrive pas à gagner la vie telle que cela lui se doit.
+
+[00:14:41 → 00:14:45] Mais la Bible dit qu'il y a des dévoreurs, ça veut dire qu'il y a des personnes qui peuvent travailler mais spirituellement qui peuvent connecter à un tuyau.
+
+[00:14:45 → 00:14:47] oui, peut-être par le sexe, quelqu'un peut se connecter à ton étoile
+
+[00:14:47 → 00:14:48] toi tu travailles mais c'est lui qui bénéficie
+
+[00:14:48 → 00:14:49] c'est pour ça qu'il faut être très attention avec qui tu couches
+
+[00:14:49 → 00:14:50] il y a des personnes qui sont des esprits hein
+
+[00:14:50 → 00:14:51] ah oui, ah oui
+
+[00:14:51 → 00:14:53] donc il faut savoir avec qui tu couches
+
+[00:14:53 → 00:14:53] tu parles à quelqu'un
+
+[00:14:53 → 00:14:54] donc
+
+[00:14:54 → 00:14:55] la Bible dit si tu fais cela
+
+[00:14:55 → 00:14:55] 1
+
+[00:14:55 → 00:14:56] je vais le dire de façon brève
+
+[00:14:56 → 00:14:57] quand tu payes la dîme
+
+[00:14:57 → 00:14:58] tu as un numéro 1 protégé
+
+[00:14:58 → 00:15:00] déjà tu reçois une forte portion de bénédiction
+
+[00:15:00 → 00:15:00] amène
+
+[00:15:00 → 00:15:02] parce que j'ai expliqué, écoutez-moi très bien
+
+[00:15:02 → 00:15:03] je vais donner quelques explications
+
+[00:15:03 → 00:15:05] mais je vais envoyer une vidéo où j'ai fait
+
+[00:15:05 → 00:15:06] j'ai donné l'explication de la dîme
+
+[00:15:06 → 00:15:08] Et j'ai appris aussi de la manière dont il faut la consacrer.
+
+[00:15:08 → 00:15:11] Et je réitère ici, la consécration de la dîme se fait à deux dimensions.
+
+[00:15:11 → 00:15:11] Je reviens sur ça.
+
+[00:15:11 → 00:15:13] Donc c'est pour dire que la double dîme dans l'université pense que pour vous,
+
+[00:15:13 → 00:15:15] il a précisé pour vous, ça veut dire pour vous,
+
+[00:15:15 → 00:15:18] qu'il avait mis-tu à l'épreuve en mettant en apportant la dîme dans la maison.
+
+[00:15:18 → 00:15:20] Il a dit, toutes les dîmes, si tu fais 2 activités,
+
+[00:15:20 → 00:15:23] tu vas payer la dîme des 2 activités, si tu fais 3 activités, la dîme des 3 activités.
+
+[00:15:23 → 00:15:25] Écoutez-moi, il y a des personnes qui sont rentrées en alias avec tu
+
+[00:15:25 → 00:15:26] et qui donnent payer la dîme par chrono.
+
+[00:15:26 → 00:15:27] Payer la dîme par chrono veut dire quoi ?
+
+[00:15:27 → 00:15:29] Même si quelqu'un te donne 10 000, tu enlèves une miffra net.
+
+[00:15:29 → 00:15:32] C'est-à-dire que tu suis rentré dans ta main, tu n'attends pas la fin du mois, tu enlèves la dine au jour le jour.
+
+[00:15:32 → 00:15:35] C'est-à-dire que à chaque fois que tu touches à mon temps de donner une miffra, tu enlèves la dine.
+
+[00:15:35 → 00:15:38] Tu n'attends pas la fin du mois, tu n'attends pas la fin de la semaine, tu n'attends peut-être pas la fin de la journée.
+
+[00:15:38 → 00:15:39] Si tu touches une fois dans la journée, tu enlèves la dine.
+
+[00:15:39 → 00:15:41] Si tu la touches deux fois, à chaque fois que tu touches, tu enlèves la dine net.
+
+[00:15:41 → 00:15:43] C'est ça payer.
+
+[00:15:43 → 00:15:45] Voilà, c'est ça payer la dine par chrono.
+
+[00:15:45 → 00:15:49] Je vais plus expliquer, je vais envoyer une vidéo, les vidéos que j'envoie au cours de la main, c'est quoi cela ?
+
+[00:15:49 → 00:15:52] Si tu me suis, tu vas savoir pourquoi j'ai envoyé la vidéo et tu vas suivre la vidéo pour mieux comprendre ce que je n'avais pas expliqué.
+
+[00:15:52 → 00:15:57] Donc quand je parle de la DIME maintenant, il y a un moment donné où je vais envoyer la vidéo de la DIME et quand tu vas l'écouter, tu vas comprendre ce que je voulais expliquer mais à cause du temps, je n'ai pas pu expliquer.
+
+[00:15:57 → 00:16:00] Amène, je veux que je me parle des avantages et des inconvénients.
+
+[00:16:00 → 00:16:03] Quand tu payes la DIME, il y a des avantages. Les inconvénients, il a dit si tu ne payes pas la DIME, ce qui pourrait t'arriver.
+
+[00:16:03 → 00:16:07] La vie me dit même que pour vous qui n'aiment plus payer la dîme, je vais empêcher, je vais menacer le dévoureur.
+
+[00:16:07 → 00:16:10] Il y a des gens qui ne tiennent même pas l'argent à leur main. Tu te donnes l'argent, tu mets l'argent dans ta main, tu te fais quelque chose, ça disparaît.
+
+[00:16:10 → 00:16:16] Pourquoi ? Même depuis le début d'année, tu dois faire ce qu'on appelle la prémisse, pour commander tout ce que tu t'es revenu au cours de cette année. Amen.
+
+[00:16:17 → 00:16:23] Donc, pour ce qui concerne les recommandations de la dîme, Kaidi, je vais menacer les dévoureurs et il ne détruira pas les fruits de votre champ. Amen.
+
+[00:16:23 → 00:16:25] Ça veut dire que quand tu payes la dîme, il y a des malheurs qui ne pourront pas t'arriver.
+
+[00:16:25 → 00:16:30] En tout cas, j'ai expliqué plus profondément cela dans la vidéo que je vais vous envoyer à la fin de cette session, à la fin d'aujourd'hui.
+
+[00:16:30 → 00:16:32] Parce que dans chaque dîner, il y a une partie qui a de poisons.
+
+[00:16:32 → 00:16:35] Si tu consommes le poisson là, tu verras, tout le cas j'ai expliqué cela là-bas.
+
+[00:16:35 → 00:16:38] Maintenant, comment est-ce qu'il faut devenir, comment faire pour devenir riche par la dîne ?
+
+[00:16:38 → 00:16:40] Écoutez très bien, là je vais arrêter de parler de la...
+
+[00:16:40 → 00:16:42] Parce que, il y a la dîne S&D en deux niveaux.
+
+[00:16:42 → 00:16:45] Il y a les 10%, les premiers 10%, et puis il y a les 90%.
+
+[00:16:45 → 00:16:47] Amen, et il y a les 9-10%, voilà, je vais expliquer comme ça.
+
+[00:16:47 → 00:16:50] Il y a un premier 10%, et il y a les 9-10%.
+
+[00:16:50 → 00:16:52] Quand on m'a dit, il y a 10% qui va à Dieu, et il y a 90% qui nous le vient.
+
+[00:16:52 → 00:16:54] Maintenant, comment devenir riche par la dîme ?
+
+[00:16:54 → 00:16:56] On devient maintenant riche, amen.
+
+[00:16:56 → 00:16:58] On devient maintenant riche à base des 90%.
+
+[00:16:58 → 00:17:00] Écoutez très bien ce que je vous dis.
+
+[00:17:00 → 00:17:01] Il faut suivre cette formation jusqu'à la fin, parce que quoi ?
+
+[00:17:01 → 00:17:03] Les 90% là, qui constituent de l'argent,
+
+[00:17:03 → 00:17:05] il y a une suite de ça que je vais parler quand je vais aborder
+
+[00:17:05 → 00:17:07] la deuxième session qui dit qu'il va me posséder le monde espiritual.
+
+[00:17:07 → 00:17:08] Je vais parler du mystère de l'argent.
+
+[00:17:08 → 00:17:10] Donc c'est ça qui complète la mystère de la dîme.
+
+[00:17:10 → 00:17:11] C'est-à-dire quand tu tues la mystère de la dîme, tu vas voir,
+
+[00:17:11 → 00:17:12] les 90%, il y a sept ans de réglementation,
+
+[00:17:12 → 00:17:16] Mais qui ne rentre pas dans le cadre de la dîme, mais qui rentre directement dans le cadre de l'argent en général.
+
+[00:17:16 → 00:17:19] Donc ce que tu vas recevoir dans la prochaine session, dans la première phase de la seconde session,
+
+[00:17:19 → 00:17:21] va te permettre aussi de contrôler un peu les 90%.
+
+[00:17:21 → 00:17:22] Donc on devient riche, d'accord ?
+
+[00:17:22 → 00:17:24] Par l'utilisation appropriée.
+
+[00:17:24 → 00:17:26] Parce que la prospérité est rattachée au sein.
+
+[00:17:26 → 00:17:28] Bon, je vais parler de ça quand je vais rentrer dans le mystère de l'argent.
+
+[00:17:28 → 00:17:28] Amène.
+
+[00:17:28 → 00:17:30] Parce que chaque argent contient en soi un poison.
+
+[00:17:30 → 00:17:33] Et je vous apprends dans le mystère de l'argent comment perpétuer une certaine dimension de richesse.
+
+[00:17:33 → 00:17:35] Je t'ai dit, tu gagnais 10 000.
+
+[00:17:35 → 00:17:35] Tu as gagné 15 000.
+
+[00:17:35 → 00:17:37] Qu'on m'a fait pour ne pas descendre encore à 10 000, ou à 11 000, ou à 8 000.
+
+[00:17:37 → 00:17:41] Qu'on m'a fait pour être supérieur ou égal à ce que tu fais, les gars.
+
+[00:17:41 → 00:17:42] Le monde est plein de mystère, il faut la connaissance pour les bécriser.
+
+[00:17:42 → 00:17:43] Ça, on est d'accord.
+
+[00:17:43 → 00:17:45] Donc, on devient riche par les 420% !
+
+[00:17:45 → 00:17:48] Donc, viens vous expliquer tous les paramètres, ok, de cette histoire de la dîme.
+
+[00:17:48 → 00:17:48] Amen.
+
+[00:17:48 → 00:17:51] Donc, comment est-ce qu'on devient riche avec les 420% ?
+
+[00:17:51 → 00:17:53] Alors, vous devez comprendre que, quand la Bible est dit,
+
+[00:17:53 → 00:17:55] que apporter la dîme, apporter les 420%,
+
+[00:17:55 → 00:17:56] pour des coups que vous voici, je ne le puisse pas dévisser,
+
+[00:17:56 → 00:17:58] je ne vais pas dévisser la bénédiction sur vous en abondance.
+
+[00:17:58 → 00:18:00] Écoutez, très bien, il y a quelque chose qui ne vient pas dans mon esprit.
+
+[00:18:00 → 00:18:03] J'aimerais rappeler à quelqu'un, les hommes de Dieu n'ont pas forcément besoin de la dîme pour vivre.
+
+[00:18:03 → 00:18:05] C'est parce que c'est Dieu qui l'a dit, c'est pas l'homme de Dieu.
+
+[00:18:05 → 00:18:08] Non, il y a ces hommes de Dieu là, eux, ils sont calicités, ils n'ont pas besoin de la dîme.
+
+[00:18:08 → 00:18:10] C'est toi qui le paye la dîme, c'est à dire que tu vas pas le respecter de Dieu, ça.
+
+[00:18:10 → 00:18:12] Et par conséquent, lorsqu'il va prier pour toi, Dieu va passer par lui pour te bénir.
+
+[00:18:12 → 00:18:16] Parce qu'il y a des hommes de Dieu qui, par exemple, n'ont pas l'argent, mais ils ont la grâce de multiplier l'argent.
+
+[00:18:16 → 00:18:19] Par conséquent, si tu lui donnes l'argent, si tu lui fais l'empreinte, si tu lui payes la dîme,
+
+[00:18:19 → 00:18:22] la prière que lui va faire pour toi, sera une esprit qui va accompagner ta finance, qui va te rendre riche.
+
+[00:18:22 → 00:18:23] C'est-à-dire lui-même il n'est pas riche, mais il a l'esprit de la richesse.
+
+[00:18:23 → 00:18:25] C'est comme avant disait le commesse triangulaire.
+
+[00:18:25 → 00:18:26] Je vais expliquer ça.
+
+[00:18:26 → 00:18:28] L'homme de Dieu, lui, il a l'esprit qu'il rend riche, mais lui-même il n'a pas riche.
+
+[00:18:28 → 00:18:30] Donc, toi, tu viens lui donner l'argent.
+
+[00:18:30 → 00:18:32] Et puis pour toi, il relâche la puissance ou il a l'esprit de la richesse sur toi.
+
+[00:18:32 → 00:18:34] Et l'esprit de la richesse, là, multiplie ce que toi tu fais.
+
+[00:19:04 → 00:19:06] Le produit fini là, tu en as besoin, lui aussi il en a besoin.
+
+[00:19:06 → 00:19:07] Ça veut dire complémentarité.
+
+[00:19:07 → 00:19:09] Tu as besoin du produit fini qui est la justesse, qui est l'argent.
+
+[00:19:09 → 00:19:11] Tu en as besoin, le homme de Dieu aussi en a besoin.
+
+[00:19:11 → 00:19:12] Mais toi qui as la matière première, lui il a la machine.
+
+[00:19:12 → 00:19:13] Voilà.
+
+[00:19:13 → 00:19:14] Ça veut dire que lui qui a la machine là, il est supérieur à toi.
+
+[00:19:14 → 00:19:15] Pourquoi?
+
+[00:19:15 → 00:19:16] Parce que toi tu peux garder ta matière première.
+
+[00:19:16 → 00:19:17] Mais lui là, puisqu'il a la machine, c'est toi qui refusent.
+
+[00:19:17 → 00:19:18] Il y a d'autres qui vont venir avec la matière première.
+
+[00:19:18 → 00:19:19] Est-ce que...
+
+[00:19:19 → 00:19:20] Ah, le produit national brut.
+
+[00:19:20 → 00:19:21] Le PNB, voilà.
+
+[00:19:21 → 00:19:22] Il y a aussi le PIB, le produit intérieur brut.
+
+[00:19:22 → 00:19:23] Il y a aussi un revenu sur les étrangers là.
+
+[00:19:23 → 00:19:27] Le PNB voilà, il y a aussi le PIB le plus, il y a aussi un refus sur les étrangers là, c'est ça que je voulais, excusez-moi.
+
+[00:19:27 → 00:19:29] Les économistes là, aidez-moi. Oui, j'ai fait économie mais bon.
+
+[00:19:29 → 00:19:33] Ça fait longtemps, il y a Galiza quelque part. Avec comptabilité, finance, tout, tout, tout, tout, tout, voilà.
+
+[00:19:33 → 00:19:36] Ça y est encore, hein. Mais puisque je n'ai plus ouvert avec les livres, les génus, je ne travaille plus dans ce secteur-là.
+
+[00:19:36 → 00:19:39] C'est pour ça, sinon, j'ai fait beaucoup de filières. Amen.
+
+[00:19:39 → 00:19:41] Donc, c'est pour ça, l'homme de Dieu, il ne s'inquiète pas. Parce que c'est qu'il est là, dans la machine.
+
+[00:19:41 → 00:19:48] C'est toi qui veux, c'est toi qui veux devenir la dieu, c'est ce peuple qui refuse de m'adonner, je vais ordonner aux prières, je vais à la matière première, si l'homme ne veut pas les prières, on le fait, parce qu'il a la part ou la puissance qu'il peut ordonner, je parle à quelqu'un.
+
+[00:19:48 → 00:19:56] Donc tu deviens riche par l'utilisation des 90%. Amen. Maintenant, comment est-ce que tu deviens riche par les 90% ? C'est ça que je vais t'expliquer, dis-donc, est-ce que je vais t'expliquer ?
+
+[00:19:56 → 00:20:05] Alors, les 90% que tu détiens là, sont en réalité des graines ou des semences que tu vas semer à chaque fois que tu écoutes le mécanisme très bien.
+
+[00:20:05 → 00:20:10] Parce que quand j'ai dit que tu deviens d'arri par les 90%, il y a des gens qui s'attendent parce que tu donnes paf, voilà ce qu'on fait, écoutez très bien.
+
+[00:20:10 → 00:20:15] Quand tu viens de pourlever les 10%, comme la Bible dit, que mettez ça, apportez ça dans la maison de Dieu pour voir si je vais pas ouvrir les éclats des cieux sur ta vie.
+
+[00:20:15 → 00:20:18] Ça veut dire que, écoutez que là il y a la logique, la Bible si tu ne t'expliques pas, tu vas pas comprendre.
+
+[00:20:18 → 00:20:23] Ça veut dire que, pour que la bénédiction soit activée, il faut enlever les 10%.
+
+[00:20:23 → 00:20:27] C'est comme une bouteille. Si tu veux consommer ce qui a les deux lieux, il faut enlever le bouchon.
+
+[00:20:27 → 00:20:31] Donc, la Bible dit, dès que tu enlèves les 10% qui constituent le poisson,
+
+[00:20:31 → 00:20:34] automatiquement, la bénédiction descend sur les 90%.
+
+[00:20:34 → 00:20:37] Et c'est sur les 90% qui sont bénis là, que tu vas travailler pour devenir riche.
+
+[00:20:37 → 00:20:40] Tu peux avancer. Donc, quand tu payes la dine, tu enlèves ce que tu as dit.
+
+[00:20:40 → 00:20:42] Automatiquement, puisqu'il est le dieu de l'alliance, l'alliance est automatique.
+
+[00:20:42 → 00:20:44] Tant que tu obéis, tu as le résultat. C'est comme en informatique, où on dit la boucle poue, la boucle tant que.
+
+[00:20:44 → 00:20:47] Donc, fais ci, etc. C'est-à-dire, tant que tu fais ceci, il y a ça.
+
+[00:20:47 → 00:20:49] Tu parles à quelqu'un ?
+
+[00:20:49 → 00:20:51] Le roi des formatiques
+
+[00:20:51 → 00:20:53] Amen !
+
+[00:20:53 → 00:20:55] Donc, tant que tu fais ceci, tant que tu enlèves les 10%
+
+[00:20:55 → 00:20:57] Automatiquement, la bénédiction descend
+
+[00:20:57 → 00:20:59] Et que l'homme de Dieu prie pour toi, la bénédiction descend automatiquement sur les 40%
+
+[00:20:59 → 00:21:01] Maintenant, les 40% là, c'est ça qui constitue maintenant une semence
+
+[00:21:01 → 00:21:03] Qui va te permettre de devenir riche
+
+[00:21:03 → 00:21:05] Et comment tu vas faire pour devenir riche avec les 40% ?
+
+[00:21:05 → 00:21:07] À ne les investissant, amen
+
+[00:21:07 → 00:21:09] Ça veut dire que, pour avoir un arbre, il faut avoir la semence
+
+[00:21:09 → 00:21:11] Et Dieu ne donne jamais un arbre avec des fruits, il te donne toujours une semence
+
+[00:21:11 → 00:21:13] Et cette semence là, cette graine là, c'est soit même que tu vas implanter
+
+[00:21:13 → 00:21:15] Mais écoutez très bien, on peut te donner une bonne graine
+
+[00:21:15 → 00:21:17] on peut lui donner une bolle de graines, on peut lui donner une bolle de semences
+
+[00:21:17 → 00:21:19] mais si tu ne sais pas sur quelle terre est implanté ou planté cette semence là
+
+[00:21:19 → 00:21:21] et comment l'arroser, tu ne pourras pas
+
+[00:21:21 → 00:21:23] avoir un arbre ou le fruit, ah mais c'est pour ça Dieu a dit
+
+[00:21:23 → 00:21:25] je vais m'y assurer, quelqu'un comprend la définition
+
+[00:21:25 → 00:21:27] l'avis est clair, il dit je vais m'y assurer
+
+[00:21:27 → 00:21:29] il veut pas les fruits du voie de campagne, fruits
+
+[00:21:29 → 00:21:31] ça veut dire que les 90% là deviennent comme des graines
+
+[00:21:31 → 00:21:33] et des semences que tu vas planter pour produire des fruits
+
+[00:21:33 → 00:21:35] que tu vas manger
+
+[00:21:35 → 00:21:37] tu comprends maintenant, les 90% deviennent des graines
+
+[00:21:37 → 00:21:39] deviennent des semences que tu vas implanter pour avoir le fruit
+
+[00:21:39 → 00:21:41] mais pour que tu n'investisse pas
+
+[00:21:41 → 00:21:43] C'est pour ça qu'il a dit que tu allais menacer les dévoureurs.
+
+[00:21:43 → 00:21:45] Ça dit la saison, ça dit que tu peux te planter, mais ça va tomber dans une mauvaise saison.
+
+[00:21:45 → 00:21:47] Et dans cette saison là, si tu as acheté les chaussières en janvier, ça va coûter cher.
+
+[00:21:47 → 00:21:49] Par contre, quand tu as arrivé le mois de mars maintenant,
+
+[00:21:49 → 00:21:51] tu as acheté la chaussière peut-être à 1 euro, ou peut-être à 2 euros.
+
+[00:21:51 → 00:21:53] Et tu sais que dans le mois de mars, tu vas vendre ça à peut-être 15 ou 20 euros.
+
+[00:21:53 → 00:21:55] Bizarrement, dans le mois de mars là, ça revient maintenant à 2 euros.
+
+[00:21:55 → 00:21:57] Tu as perdu ou pas ? Donc c'est pour éliminer, attirer la faveur de Dieu,
+
+[00:21:57 → 00:21:59] afin que tu puisses avoir un beau résultat qui l'a dit que
+
+[00:21:59 → 00:22:01] peut-être à 1 euro ou peut-être à 2 euros, et tu sais que dans le mois de mars tu vas vendre ça à
+
+[00:22:01 → 00:22:04] peut-être 15 ou 20 euros. Bizarrement dans le mois de mars là, ça revient maintenant à 2 euros.
+
+[00:22:04 → 00:22:06] Tu as perdu ou pas ? Donc c'est pour éliminer, attirer la faveur de Dieu,
+
+[00:22:06 → 00:22:09] afin que tu puisses avoir un beau résultat, qui l'a dit que je vais me menacer cette saison-là,
+
+[00:22:09 → 00:22:11] que pour toi là, même le mois de mars là, ça va te mener jusqu'à 20 euros.
+
+[00:22:11 → 00:22:12] Tu vas finir de vendre pour toi avant que la saison ne chute.
+
+[00:22:12 → 00:22:15] Voilà ce que la Bible dit dans Malachi, 3, le verset de 10 à 12 ça.
+
+[00:22:15 → 00:22:24] Tu n'as pas devenu riche avec les 90%, voilà ce que tu dois faire.
+
+[00:22:24 → 00:22:28] Tu dois investir les 90%, les 90% là sont déjà bénis.
+
+[00:22:28 → 00:22:33] Mais quand tu deviens riche, il va falloir que tu investisses les 90% dans de bonnes activités.
+
+[00:22:33 → 00:22:37] Et écoutez-moi très bien, dans les 90% que tu as là, c'est constitué d'une bénédiction.
+
+[00:22:37 → 00:22:38] Donc dans tout ce que tu vas l'investir, ça va marcher.
+
+[00:22:38 → 00:22:42] Maintenant, quitte à toi maintenant, de savoir en quoi tu vas investir les 90% pour que cela produise.
+
+[00:22:42 → 00:22:46] Alors pour devenir riche, l'une des voies, c'est de cibler premièrement une bonne activité.
+
+[00:22:46 → 00:22:49] C'est de faire une bonne étude de marché. C'est de faire une bonne analyse.
+
+[00:22:49 → 00:22:51] Et de bien semer les 90% là pour devenir riche.
+
+[00:22:51 → 00:22:53] Oh, j'aime quelqu'un.
+
+[00:22:53 → 00:22:57] Pour devenir riche avec les 90% là, il ne faut pas te dire que tu es celui qui a fait le père Noël.
+
+[00:22:57 → 00:23:00] Les 90% là, il faut investir une boite, on ne gaspille pas les 90% !
+
+[00:23:00 → 00:23:01] Yes !
+
+[00:23:01 → 00:23:05] On ne gaspille pas les 90%, si tu fais une activité et que tu prélèves l'ADDIM, les
+
+[00:23:05 → 00:23:08] 90% qui restent là, fait tes dépenses, mais il faut investir les 90% là.
+
+[00:23:08 → 00:23:12] Si tu es peut-être, si tu es peut-être un employé, tu es un salarié, quand tu prélèves
+
+[00:23:12 → 00:23:15] ta ADDIM, il faut chercher à investir les 90% dans une quelque activité.
+
+[00:23:15 → 00:23:18] Et c'est ça qui te rendra riche, parce que la Bible dit que les 90% là représentent
+
+[00:23:18 → 00:23:20] une soumence, représentent une graine, qui vont produire des fruits.
+
+[00:23:20 → 00:23:23] Alors si tu ne plantes pas, si tu n'investis pas, tu ne deviendras pas riche.
+
+[00:23:23 → 00:23:26] Les 90% là, si tu veux 60 000 à la fin du mois, tu veux 300 000, 90% là c'est 90 000.
+
+[00:23:26 → 00:23:29] Tu deviens bien pas riche, car on ne sait pas que les 90 000 chaque mois c'est impossible.
+
+[00:23:29 → 00:23:31] On dit deviens riche avec les 90% ou avec la DIME.
+
+[00:23:31 → 00:23:34] Tu vois, chaque mois tu sais que les 90 000 que tu as comme résultat.
+
+[00:23:34 → 00:23:36] Et tu penses que les 90 000 chaque mois tu deviendras riche ?
+
+[00:23:36 → 00:23:38] Non ! Tu deviendras riche par les 90% ou bien par la DIME,
+
+[00:23:38 → 00:23:41] en investissant dans une activité rémunératrice.
+
+[00:23:41 → 00:23:43] Ça peut être les activités à revenus passifs.
+
+[00:23:43 → 00:23:45] Oui, les revenus passifs, il faut avouer quelque chose de côté.
+
+[00:23:45 → 00:23:47] Écoutez-moi très bien, la Bible c'est pour les entrepreneurs,
+
+[00:23:47 → 00:23:49] et la team est souvent bénéfique pour tout ce qu'ils veulent entreprendre.
+
+[00:23:49 → 00:23:51] Quand tu payes la team, il faut que tu investis.
+
+[00:23:51 → 00:23:52] Ça va, ça se reproduit.
+
+[00:23:52 → 00:23:54] Parce que écoute-moi, si tu joues salarié, tu ne fais pas de magie.
+
+[00:23:54 → 00:23:55] Tu ne deviendras pas riche en état salarié.
+
+[00:23:55 → 00:23:57] Donc c'est pour ça que je mérissais que la monnaie de devenir riche là,
+
+[00:23:57 → 00:24:00] c'est d'entrepreneur du fait d'avoir une activité de côté.
+
+[00:24:00 → 00:24:02] C'est-à-dire en l'occurrence où il n'y a plus précisément le commerce.
+
+[00:24:02 → 00:24:03] Une activité qui bouge.
+
+[00:24:03 → 00:24:04] C'est dans ça qu'il faut investir.
+
+[00:24:04 → 00:24:07] Parce que le commerce ou le business ou les activités passives là,
+
+[00:24:07 → 00:24:08] sont les seules, ou bien qu'elles aient une entreprise,
+
+[00:24:08 → 00:24:09] sont les seules choses qui vont te permettre
+
+[00:24:09 → 00:24:10] d'avoir des revenus ou des résultats pas stables.
+
+[00:24:10 → 00:24:12] Parce que le salaire, tu racontes le sur ton appel à la CDI,
+
+[00:24:12 → 00:24:13] le contrat a duré indéterminé,
+
+[00:24:13 → 00:24:14] ça veut dire que le salaire est le même,
+
+[00:24:14 → 00:24:16] tu peux coller des prix, mais c'est standard.
+
+[00:24:16 → 00:24:17] Mais quand tu fais une activité,
+
+[00:24:17 → 00:24:18] et que le chiffre d'affaires ne sera pas standard,
+
+[00:24:18 → 00:24:19] quand tu gagnes peut-être 100 000 aujourd'hui,
+
+[00:24:19 → 00:24:21] demain tu peux gagner, ou bien le mois prochain tu peux gagner,
+
+[00:24:21 → 00:24:23] je le sais, 100 000 à la fois, 3 fois, 4 fois, 5 fois, 6,
+
+[00:24:23 → 00:24:23] à même !
+
+[00:24:23 → 00:24:26] Donc c'est en cela que la DIME,
+
+[00:24:26 → 00:24:26] est un riche.
+
+[00:24:26 → 00:24:28] Je parle à quelqu'un ?
+
+[00:24:28 → 00:24:35] Alors, la première condition c'est celui qui reçoit la dîme.
+
+[00:24:35 → 00:24:37] Par exemple, celui qui reçoit un nom de Dieu qui ne prie pas pour toi ne mérite pas ta dîme.
+
+[00:24:37 → 00:24:39] Un nom de Dieu qui s'en fout de toi ne mérite pas ta dîme.
+
+[00:24:39 → 00:24:41] Un nom de Dieu qui ne t'enseigne pas, qui ne prie pas pour toi ne mérite pas ta dîme.
+
+[00:24:41 → 00:24:42] Première des choses.
+
+[00:24:42 → 00:24:44] Yes, il ne mérite pas ta dîme.
+
+[00:24:44 → 00:24:46] Quelqu'un qui ne t'enseigne pas, qui ne prie pas, qui ne prend pas de dîme de toi.
+
+[00:24:46 → 00:24:49] Et d'ailleurs, un nom de Dieu qui reçoit ta dîme, il est obligé de prier pour toi.
+
+[00:24:49 → 00:24:53] Parce que c'est un priant que la bénédiction sera relâchée de façon définitive ou de façon complète.
+
+[00:24:53 → 00:24:55] Donc la condition c'est qu'il faut donner la dîme à un homme de Dieu
+
+[00:24:55 → 00:24:59] Mais celui à qui tu donnes la dîme, ça dépend aussi du fonctionnement de la bénédiction qui m'a combattu à 90%
+
+[00:24:59 → 00:25:01] Si tu donnes à un homme de Dieu, parce que voilà, sans l'enseignement d'éternité, il suffit pas
+
+[00:25:01 → 00:25:03] Ou bien, il n'y a rien qui t'attache à l'homme de Dieu
+
+[00:25:03 → 00:25:04] Ou ses prédications
+
+[00:25:04 → 00:25:06] Ou si tu n'as aucun lien avec l'homme de Dieu, bien toi si tu te promènes
+
+[00:25:06 → 00:25:08] Bon, j'ai la dîme, je m'en vais dans une église, tu t'en vas me donner dans une église lambda
+
+[00:25:08 → 00:25:09] Tu n'auras pas la bénédiction
+
+[00:25:09 → 00:25:09] Dieu qui te dit
+
+[00:25:09 → 00:25:11] C'est parce que tu dis peut-être que je n'ai pas l'église mais je vais donner l'atime.
+
+[00:25:11 → 00:25:12] Faut chercher un homme de Dieu avec qui tu as une relation.
+
+[00:25:12 → 00:25:14] Tu peux prier pour le plan net, tu ne t'en vas pas donner l'atime là-bas.
+
+[00:25:14 → 00:25:16] Et c'est en cela que la condition est validée.
+
+[00:25:16 → 00:25:17] Ce n'est pas défilé dans la Bible comme je le dis.
+
+[00:25:17 → 00:25:20] Mais car la Bible dit, dans ma maison, apportez la boule, ce n'est pas défilé dans ma maison.
+
+[00:25:20 → 00:25:21] C'est dans ça que l'Esprit nous a éclairé.
+
+[00:25:21 → 00:25:23] L'Esprit nous a instruit par le sac, l'Esprit nous comprend de ces conditions qui sont autour là.
+
+[00:25:23 → 00:25:25] La Bible est tellement bon. Si tu n'as pas l'Esprit, tu ne pourras pas comprendre la Bible.
+
+[00:25:25 → 00:25:31] Tu sais quoi, je te le dis là, c'est pas écrit dans la bible directement, mais ce sont des sous, on appelle ça des non-dits, où les sous sont tendus. Amen.
+
+[00:25:33 → 00:25:42] Si la 90% de nos besoins, si cette charge ne couvre pas les... Si la 90% ne couvre pas toutes les dépenses, eh ben il faut réduire les dépenses. Oui, il faut réduire les dépenses.
+
+[00:25:43 → 00:25:49] Maintenant, si la 90% égale à toutes les dépenses, alors là, il faut chercher un autre métier, parce que là tu pourras pas devenir riche.
+
+[00:25:49 → 00:25:55] En fait, c'est pas de la magie. La condition pour 90% de grande riche, c'est qu'il faut que tu l'investisses.
+
+[00:25:55 → 00:26:00] Qu'est-ce que vous comprenez ? Maintenant, si 90% là, est inférieur aux besoins, alors il faut réduire les besoins au plus possible.
+
+[00:26:00 → 00:26:05] Soit, chercher un autre moyen de revenu pour que les 80% là, tu puisses prendre la germe là, pour l'investir en quelque cas.
+
+[00:26:05 → 00:26:11] Je parle à quelqu'un, si les 80% là, est égal aux besoins, c'est-à-dire que 90% couvre, c'est juste que tous les besoins égale à 90%,
+
+[00:26:11 → 00:26:16] ou les 80% ne couvrent même pas les besoins, alors c'est dangereux. Tu veux une vie déficitaire.
+
+[00:26:16 → 00:26:19] Et je parle à quelqu'un, alors il faut chercher à réduire les dépenses, soit chercher un autre moyen de revenu,
+
+[00:26:19 → 00:26:22] afin que quand tu ajoutes les 2,90 pour ça là, que cela puisse couvrir jusqu'à ce que tu puisses investir.
+
+[00:26:22 → 00:26:23] Est-ce que c'est bon ?
+
+[00:26:25 → 00:26:28] Donc je continue. Celui chez qui tu vas donner la dîme, quand tu donnes la dîme chez un homme de Dieu,
+
+[00:26:28 → 00:26:29] il faut que cet homme de Dieu l'apprie pour toi.
+
+[00:26:29 → 00:26:31] Voilà, il faut qu'il l'apprie pour toi.
+
+[00:26:31 → 00:26:32] Maintenant, qu'est-ce qui se passe ?
+
+[00:26:32 → 00:26:36] Il est pas venu que tu sois dans une église où l'église est tellement grande que tu ne peux pas avoir l'homme de Dieu pour qu'il l'apprie pour toi.
+
+[00:26:36 → 00:26:40] Ah écoutez très bien, quand tu suis ce que je dis, tu veux pas que ta vie va changer financièrement.
+
+[00:26:40 → 00:26:42] Parce que je ne parle pas parce que pour parler, je ne parle pas de révélation.
+
+[00:26:42 → 00:26:44] Tu lis la Bible, tu lis ce que je dis là, tu n'as pas la lumière sur ça.
+
+[00:26:44 → 00:26:46] C'est 1 le 10 maintenant que tu dis que tu vois que ce que je dis là c'est vrai.
+
+[00:26:46 → 00:26:47] Qui réveille que ce que je dis est vrai ?
+
+[00:26:47 → 00:26:49] Qui ? Peut-être que tu le connaissais pas, mais quand je dis que tu fais l'analyse,
+
+[00:26:49 → 00:26:51] quand tu suis ce que je dis, tu vois que ce que je dis là est vrai.
+
+[00:26:51 → 00:26:52] Qui réveille ? Qui réveille ça ?
+
+[00:26:59 → 00:27:00] Tu vois que ce que je dis là est vrai.
+
+[00:27:00 → 00:27:01] Qui réveille ? Qui réveille ça ?
+
+[00:27:02 → 00:27:03] Donc,
+
+[00:27:03 → 00:27:05] Un homme de Dieu qui reçoit ta dîme et qui va prier pour toi.
+
+[00:27:05 → 00:27:07] Maintenant si je suis dans un discours, vous avez peut-être 10 000 membres ou 100 000 membres,
+
+[00:27:07 → 00:27:09] vous ne pouvez pas, vous ne pouvez pas avoir l'homme de Dieu pour qui prient pour toi.
+
+[00:27:09 → 00:27:11] Il peut arriver que tu envoies la dîme à un homme de Dieu.
+
+[00:27:11 → 00:27:13] Aussi longtemps que tu as la possibilité d'envoyer ça à un homme de Dieu qui est accessible à toi.
+
+[00:27:13 → 00:27:15] Par exemple, je prends mon exemple, il y a mes fils qui me font la dîme chez moi.
+
+[00:27:15 → 00:27:17] Quand tu sais que tu peux m'envoyer la dîme, et que tu peux être en contact avec moi,
+
+[00:27:17 → 00:27:19] et que je peux prier pour toi, alors là, tu prends la dîme,
+
+[00:27:19 → 00:27:21] tu ne pries pas dessus, et puis tu m'envoies, toi tu m'envoies maintenant,
+
+[00:27:21 → 00:27:40] Tu m'envoies maintenant, moi je vais prier pour toi, ou bien tu envoies à ton homme de Dieu, tu l'appelles à la dîme, ou pas pas, tu viens t'envoyer la dîme, voilà il va prier pour toi, si c'est la dîme, la prémisse, l'offrande, il prier pour toi, là c'est bon, mais quand tu fais dans une maison ton pasteur, à trop de monde, que tu ne pourras pas, il n'est pas accessible, c'est un seul moment là, que quand tu prends ta dîme, tu vas la consacrer, tel que je l'ai dit dans la vidéo, je vais envoyer la vidéo, ou j'ai appris, ou j'ai appris comment consacrer la dîme, maintenant c'est la dîme, l'offrande, ou la prémisse, ou voilà les temps volontaires, si tu sais que tu vas
+
+**[Fin du passage retranscrit.]**
+
+
+
+
 
 [00:27:36 → 00:27:37] puisque, ou voilà, les temps volontaires.
 
