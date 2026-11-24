@@ -178,10 +178,35 @@ Enseigne l'usage des psaumes pour réclamer la
 justice divine, avec la notion de convocation
 spirituelle.
 
-Sources : 11 vidéos sur Google Drive, environ
-14,5 Go. Ni transcrites, ni ordonnées. La
-numérotation des fichiers se contredit d'un
-compte Drive à l'autre.
+Sources : 11 vidéos distinctes sur Google
+Drive, 10,5 Go, environ 7 heures. Aucune vidéo
+ne manque. Le chiffre de 14,5 Go était le
+total des 14 fichiers de départ, dont 3
+doublons pesant 4,1 Go.
+
+Les sources sont de deux natures. Neuf
+enregistrements de masterclass que le Dr
+Raphaël a données à des proches, enregistrées
+par Joseph. Et deux vidéos déjà publiées sur
+sa chaîne YouTube, qu'il a demandé d'intégrer.
+
+Les noms de fichiers sont des étiquettes posées
+par Joseph, pas une numérotation de l'auteur.
+Ils ne donnent aucun ordre et aucune
+indication. Il n'y a pas d'enregistrement
+manquant. L'ordre du livre sera déterminé par
+la logique du sujet, pas par l'ordre des
+fichiers.
+
+Les masterclass ayant été données à plusieurs
+groupes, le même enseignement revient
+plusieurs fois. Ces répétitions doivent être
+repérées et fusionnées, jamais empilées.
+
+Les passages propres à YouTube — accueil de
+la chaîne, appel à s'abonner, renvoi vers
+d'autres vidéos — sont retirés. Ils n'ont pas
+leur place dans un livre.
 
 Vocabulaire pour l'initial_prompt : Psaume,
 verset, convocation spirituelle, intercession,
