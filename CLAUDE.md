@@ -15,7 +15,22 @@ la discussion, en texte, pas dans des
 documents, sauf demande explicite de Joseph.
 Il valide chapitre par chapitre.
 
-## 3. RÈGLES DE TRAVAIL
+## 3. GIT — TU TRAVAILLES SEUL
+
+Joseph ne relit pas le code et ne valide pas
+les fusions. Tu es autonome sur ce dépôt.
+
+- Tu commites et tu pousses toi-même.
+- Tu fusionnes toi-même dans main. Pas de
+  demande de fusion à faire valider.
+- Tu pousses après chaque étape terminée, pas
+  à la fin de la session. Une session peut
+  s'interrompre et le travail serait perdu.
+- Tu ne supprimes jamais un fichier de
+  sources/ ni de manuscrit/ sans le lui
+  demander d'abord.
+
+## 4. RÈGLES DE TRAVAIL
 
 - Un chapitre à la fois. Tu attends sa
   validation avant de passer au suivant.
@@ -45,7 +60,7 @@ Il valide chapitre par chapitre.
   bonnes pratiques, puis garde, garde en
   partie, ou rejette — en expliquant pourquoi.
 
-## 4. RÈGLE ABSOLUE — AUCUNE INVENTION
+## 5. RÈGLE ABSOLUE — AUCUNE INVENTION
 
 Le livre est signé par le client, pas par toi.
 
@@ -57,7 +72,7 @@ Le livre est signé par le client, pas par toi.
 - Si une information manque, tu la signales.
   Tu ne la combles pas.
 
-## 5. CE QUI EST INTERDIT DANS L'ÉCRITURE
+## 6. CE QUI EST INTERDIT DANS L'ÉCRITURE
 
 Formulations rejetées, à ne jamais réutiliser :
 
@@ -75,7 +90,7 @@ Formulations rejetées, à ne jamais réutiliser :
   trop de méthodes », « les gens savent déjà
   comment gagner de l'argent en ligne ».
 
-## 6. STRUCTURE STANDARD D'UN LIVRE
+## 7. STRUCTURE STANDARD D'UN LIVRE
 
 PAGES D'OUVERTURE
 Dédicace, préface, remerciements,
@@ -91,7 +106,7 @@ FIN
 Conclusion, annexes, à propos de l'auteur,
 quatrième de couverture.
 
-## 7. ORGANISATION DU DÉPÔT
+## 8. ORGANISATION DU DÉPÔT
 
 Un dossier par livre, numéroté. Dans chacun :
 
@@ -104,7 +119,7 @@ manuscrit/   les chapitres rédigés, un fichier
 NOTES.md     les corrections et décisions du
              client, datées
 
-## 8. TRANSCRIRE LES SOURCES AUDIO ET VIDÉO
+## 9. TRANSCRIRE LES SOURCES AUDIO ET VIDÉO
 
 Les clients fournissent souvent des
 enregistrements, pas du texte.
@@ -140,7 +155,7 @@ contenu de livre. C'est de la matière première
 qui contient des erreurs de reconnaissance à
 corriger.
 
-## 9. PRODUIRE LE FICHIER WORD
+## 10. PRODUIRE LE FICHIER WORD
 
 - Un fichier markdown par partie, concaténés
   à la fin.
@@ -154,7 +169,7 @@ corriger.
 - Format A5, 148 × 210 mm, marges en miroir
   avec reliure pour un livre épais.
 
-## 10. LES LIVRES EN COURS
+## 11. LES LIVRES EN COURS
 
 ### 01 — Dr Raphaël, spiritualité (EN COURS)
 
