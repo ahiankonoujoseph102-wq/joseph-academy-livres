@@ -71,3 +71,15 @@
   Analyse : analyse/STYLE-MARCELLO.md. PDF non versés (droits d'auteur).
 - Choix du plan (option 1 ou 2) et sens de la consigne sur les saints
   noms : toujours en attente.
+
+## 26 novembre 2026 — titre et exercices
+
+- **Titre choisi par Joseph : « Les codes du monde spirituel —
+  Comprendre, posséder, prier, consacrer ».** Gardé. Le mot « codes »
+  est celui de l'auteur (vidéo 13). Réserve : le mot « Psaumes »
+  n'apparaît pas sur la couverture ; à mettre en quatrième de couverture.
+- Titres des parties alignés sur le sous-titre : Comprendre pour
+  posséder / Posséder pour prier / Prier pour agir / Consacrer pour
+  multiplier.
+- **Un exercice à la fin de chaque chapitre** : déjà prévu par la
+  rubrique « Faites le point » (CLAUDE.md, section 7). Confirmé.

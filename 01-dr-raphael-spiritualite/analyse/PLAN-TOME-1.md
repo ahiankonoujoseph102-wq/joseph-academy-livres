@@ -1,5 +1,9 @@
 # Plan du tome 1 en 12 chapitres — proposition du 26 novembre 2026
 
+**Titre retenu (26 novembre 2026) :** *Les codes du monde spirituel —
+Comprendre, posséder, prier, consacrer*. Parties : Comprendre pour
+posséder / Posséder pour prier / Prier pour agir / Consacrer pour multiplier.
+
 Demande de Joseph : 12 chapitres au plus (le plan de SYNTHESE.md en
 avait 16). Les codes A1 à G11 renvoient à SYNTHESE.md, partie 2.
 **Non validé.**
