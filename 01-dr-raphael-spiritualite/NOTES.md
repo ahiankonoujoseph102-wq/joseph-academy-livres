@@ -51,3 +51,9 @@
   Corrections bibliques : acceptées, sauf David invisible (interprétation).
 - En attente : le pourquoi des psaumes, son livre existant, les sessions
   2 et 3, le sens exact de sa consigne sur les saints noms.
+
+## 26 novembre 2026 — 10 chapitres au plus
+
+- Joseph demande 10 chapitres au plus pour le tome 1. **Avis : bonne
+  idée, gardée.** Deux options dans analyse/PLAN-TOME-1.md, option 2
+  recommandée. En attente de son choix.
