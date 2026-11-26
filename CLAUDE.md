@@ -231,6 +231,21 @@ vidéos, établir l'ordre réel du contenu,
 décider si cela fait un livre ou deux,
 seulement ensuite rédiger.
 
+ÉTAT AU 26 NOVEMBRE 2026 :
+- Les 11 vidéos sont transcrites
+  (sources/transcription-01.md à 11).
+- Une fiche par vidéo (analyse/fiche-01.md
+  à 11).
+- Synthèse faite : analyse/SYNTHESE.md.
+  Ordre réel, enseignements fusionnés,
+  psaumes, creux, plan en 16 chapitres,
+  verdict : un seul livre.
+- Rien n'est rédigé.
+- Prochaine étape : Joseph envoie au
+  Dr Raphaël les 8 questions de la fin de
+  SYNTHESE.md, puis valide le plan.
+  Ne pas rédiger avant ces réponses.
+
 ### 02 — Fatoumata Binta Bah, cosmétiques (EN ATTENTE)
 
 Dite Dr Fatuma Tabinta. Formatrice en
