@@ -41,3 +41,13 @@
   s'il dépasse 200 pages. Joseph n'a pas encore répondu « 1 » clairement.
 - Message des 8 questions préparé pour Joseph :
   analyse/message-questions-auteur.md. Pas encore envoyé.
+
+## 26 novembre 2026 — réponses du Dr Raphaël
+
+- Reçues en vidéo (12, 13, 14). Détail : analyse/REPONSES-AUTEUR.md.
+- Sessions 2 et 3 : il les a, il veut **un tome par session**.
+  Le verdict « un seul livre » est remplacé : Tome 1 = session 1.
+- Dîme : obligation. Passages dangereux : retrait accepté.
+  Corrections bibliques : acceptées, sauf David invisible (interprétation).
+- En attente : le pourquoi des psaumes, son livre existant, les sessions
+  2 et 3, le sens exact de sa consigne sur les saints noms.

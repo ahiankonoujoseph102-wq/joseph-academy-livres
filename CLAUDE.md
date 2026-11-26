@@ -241,10 +241,15 @@ seulement ensuite rédiger.
   psaumes, creux, plan en 16 chapitres,
   verdict : un seul livre.
 - Rien n'est rédigé.
-- Prochaine étape : Joseph envoie au
-  Dr Raphaël les 8 questions de la fin de
-  SYNTHESE.md, puis valide le plan.
-  Ne pas rédiger avant ces réponses.
+- Réponses de l'auteur reçues (vidéos 12 à
+  14) : analyse/REPONSES-AUTEUR.md.
+- Un tome par session de masterclass.
+  Tome 1 = session 1 (plan en 16 chapitres).
+  Sessions 2 et 3 : l'auteur les enverra.
+- En attente : le pourquoi des psaumes, son
+  livre Le Pouvoir des prières mystiques.
+- Prochaine étape : Joseph valide le plan du
+  tome 1. Ne pas rédiger avant.
 
 ### 02 — Fatoumata Binta Bah, cosmétiques (EN ATTENTE)
 

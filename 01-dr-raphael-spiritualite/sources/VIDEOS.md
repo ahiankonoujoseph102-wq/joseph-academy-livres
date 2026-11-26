@@ -37,3 +37,13 @@ trouve au début de la vidéo suivante : rien ne manque.
 
 Lien de téléchargement :
 `https://drive.usercontent.google.com/download?id=<ID>&export=download&confirm=t`
+
+## Vidéos ajoutées le 26 novembre 2026 — réponses de l'auteur
+
+| N° | Identifiant Drive | Nom du fichier sur Drive | Poids | Durée | Nature |
+|----|----|----|----|----|----|
+| 12 | 1ZF6Va1J3cIHqsYZmDnET1X3Da80hb3jU | `réponse 1.mp4` | 0,51 Go | 9 min | Réponses aux 8 questions |
+| 13 | 1Iw1IgARqGdotp3JhUcYylcy5tT05RhkL | `LES CODES POUR RENDRE ES PSAUMES PUISSANTS…mp4` | 0,32 Go | 20 min | YouTube — les saints noms |
+| 14 | 10y_g1GbMaLADCHUOkTMrjXkkKKk02AOc | `screen-20261126-102200-….mp4` | 0,04 Go | 34 s | Consigne sur la vidéo 13 |
+
+Analyse : `../analyse/REPONSES-AUTEUR.md`.
