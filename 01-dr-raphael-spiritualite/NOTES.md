@@ -24,3 +24,13 @@
   livre 1 = monde spirituel + territoires + psaumes (chapitres 1 à 13) ;
   livre 2 = argent et dîme (chapitres 14 à 16 + session 2).
 - En attente de la décision de Joseph.
+
+## 26 novembre 2026 — raison de Joseph : pas plus de 200 pages
+
+- Joseph veut deux tomes pour que le livre ne dépasse pas 200 pages.
+- **Avis : la limite est juste, mais elle ne sera pas atteinte.**
+  Estimation (pas une mesure) : 4 heures d'enseignement, une fois
+  nettoyé et développé, donnent environ 35 000 à 45 000 mots, soit
+  environ 130 à 170 pages A5.
+- Proposition : écrire un seul livre, compter les pages à la fin.
+  S'il dépasse 200 pages, couper en deux tomes à la partie 4 (la dîme).
