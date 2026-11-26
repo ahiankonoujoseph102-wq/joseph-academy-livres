@@ -57,3 +57,10 @@
 - Joseph demande 10 chapitres au plus pour le tome 1. **Avis : bonne
   idée, gardée.** Deux options dans analyse/PLAN-TOME-1.md, option 2
   recommandée. En attente de son choix.
+
+## 26 novembre 2026 — 12 chapitres au plus
+
+- Joseph veut au plus 12 chapitres. **Avis : bonne idée, gardée.**
+  Chapitres plus longs et plus développés, conforme à CLAUDE.md.
+- Deux options dans analyse/PLAN-TOME-1.md. Option 2 recommandée.
+  En attente du choix de Joseph.

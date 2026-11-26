@@ -1,31 +1,49 @@
-# Plan du tome 1 — au plus 10 chapitres (proposition du 26 novembre 2026)
+# Plan du tome 1 en 12 chapitres — proposition du 26 novembre 2026
 
-Demande de Joseph : 10 chapitres au plus. Fusion du plan en 16 chapitres
-de SYNTHESE.md partie 5. « ex » = numéro du chapitre dans l'ancien plan.
+Demande de Joseph : 12 chapitres au plus (le plan de SYNTHESE.md en
+avait 16). Les codes A1 à G11 renvoient à SYNTHESE.md, partie 2.
+**Non validé.**
 
-## Option 2 (recommandée) — la dîme en deux chapitres
+## Option 1 — la dîme regroupée
 
 Partie 1 — Comprendre le monde spirituel
-1. Spiritualité et monde spirituel (ex 1)
-2. Les lieux, leurs esprits et la reconnaissance du territoire (ex 2 + 3)
-3. Les plantes, les animaux et ce qui attire les esprits (ex 4 + 5)
+1. Spiritualité et foi chrétienne (A1, A2, A3)
+2. Les lieux et leurs esprits (B1, B2, B4, B6)
+3. Être reconnu par un territoire (B5, A4, A5)
+4. Les trois règnes et ce qui attire les esprits (D1 à D4, E1 à E4)
 
-Partie 2 — Posséder et protéger son territoire
-4. Les éléments, la terre et la protection en sortant (ex 6 + 7 + 8)
+Partie 2 — Posséder son territoire
+5. Se présenter aux éléments, activer l'eau, parler à la terre (C1 à C4, B3)
+6. Se protéger quand on sort (B7, B8, Psaume 121)
 
 Partie 3 — La clé et le pouvoir des Psaumes
-5. Ce que sont les psaumes et les clés pour les rendre puissants (ex 9 + vidéo 13)
-6. Prier avec les psaumes au fil du jour (ex 10)
-7. La convocation spirituelle par le Psaume 94 (ex 11)
-8. Les psaumes pour se protéger et pour la vie de tous les jours (ex 12 + 13)
+7. Ce que sont les psaumes et les clés de leur puissance (F1, F2, F4, vidéo 13)
+8. Prier avec les psaumes au fil du jour (F3, F5, A6)
+9. La convocation spirituelle : le Psaume 94 (F6)
+10. Les psaumes de protection et de la vie de tous les jours (F7)
 
 Partie 4 — La mystique de la dîme
-9. Ce qu'est vraiment la dîme (ex 14)
-10. Consacrer, donner et faire fructifier (ex 15 + 16)
+11. Ce qu'est la dîme, la consacrer et la donner (G1 à G10)
+12. Faire fructifier les 90 % (G11)
 
-## Option 1 — la dîme en un seul chapitre
+## Option 2 — la protection regroupée (recommandée)
 
-1. ex 1 — 2. ex 2 + 3 — 3. ex 4 + 5 — 4. ex 6 + 7 — 5. ex 9 + vidéo 13 —
-6. ex 10 — 7. ex 11 — 8. ex 8 + 12 — 9. ex 13 — 10. ex 14 + 15 + 16
+Partie 1 — Comprendre le monde spirituel
+1. Spiritualité et foi chrétienne (A1, A2, A3)
+2. Les lieux et leurs esprits (B1, B2, B4, B6)
+3. Être reconnu par un territoire (B5, A4, A5)
+4. Les trois règnes et ce qui attire les esprits (D1 à D4, E1 à E4)
 
-Statut : en attente du choix de Joseph.
+Partie 2 — Posséder son territoire
+5. Se présenter aux éléments, activer l'eau, parler à la terre (C1 à C4, B3)
+
+Partie 3 — La clé et le pouvoir des Psaumes
+6. Ce que sont les psaumes et les clés de leur puissance (F1, F2, F4, vidéo 13)
+7. Prier avec les psaumes au fil du jour (F3, F5, A6)
+8. La convocation spirituelle : le Psaume 94 (F6)
+9. Se protéger : en sortant et par les psaumes (B7, B8 ; Psaumes 91, 121, 27, 35, 23)
+10. Les psaumes de la vie de tous les jours (90 verset 17, 72, 41, 82, 141, 45, 1, 14…)
+
+Partie 4 — La mystique de la dîme
+11. Ce qu'est vraiment la dîme (G1 à G6)
+12. Consacrer, donner et faire fructifier (G7 à G11)
