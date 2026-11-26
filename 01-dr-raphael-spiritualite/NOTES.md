@@ -64,3 +64,10 @@
   Chapitres plus longs et plus développés, conforme à CLAUDE.md.
 - Deux options dans analyse/PLAN-TOME-1.md. Option 2 recommandée.
   En attente du choix de Joseph.
+
+## 26 novembre 2026 — modèle de style : pasteur Marcello Tunasi
+
+- Joseph a envoyé 3 livres du pasteur Marcello Tunasi comme modèle.
+  Analyse : analyse/STYLE-MARCELLO.md. PDF non versés (droits d'auteur).
+- Choix du plan (option 1 ou 2) et sens de la consigne sur les saints
+  noms : toujours en attente.
