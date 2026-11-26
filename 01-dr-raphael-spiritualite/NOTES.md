@@ -34,3 +34,10 @@
   environ 130 à 170 pages A5.
 - Proposition : écrire un seul livre, compter les pages à la fin.
   S'il dépasse 200 pages, couper en deux tomes à la partie 4 (la dîme).
+
+## 26 novembre 2026 — message des 8 questions
+
+- Recommandation donnée : un seul livre, coupé en deux tomes seulement
+  s'il dépasse 200 pages. Joseph n'a pas encore répondu « 1 » clairement.
+- Message des 8 questions préparé pour Joseph :
+  analyse/message-questions-auteur.md. Pas encore envoyé.
