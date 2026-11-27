@@ -402,3 +402,11 @@
 - Chapitre 5 enrichi (environ 4 300 mots) : Josué 10, 12-14 ; Marc 4,
   39 et 41 ; Exode 15, 25 ; 2 Rois 5, 10 et 14 ; Actes 10, 2 et 4 ;
   Josué 18, 1-3. Vérifiés en Louis Segond 1910.
+
+## 27 novembre 2026 — chapitre 5 enrichi VALIDÉ ; chapitre 6 enrichi
+
+- Chapitre 6 enrichi (environ 4 200 mots) : 2 Samuel 23, 1-2 ;
+  Jérémie 23, 29 ; Matthieu 4, 5-7 (le diable cite le Psaume 91) ;
+  Philippiens 2, 9-10 ; Actes 3, 6 ; Genèse 16, 13 ; Genèse 17, 1 ;
+  Josué 6, 15-16 ; 1 Rois 18, 42-44 ; Jean 16, 12 ; Proverbes 25, 2.
+  Vérifiés en Louis Segond 1910. Image ajoutée : la clé de voiture.
