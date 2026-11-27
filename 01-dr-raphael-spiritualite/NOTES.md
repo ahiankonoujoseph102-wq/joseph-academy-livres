@@ -619,3 +619,15 @@ Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
   prophète, connu publiquement). À utiliser dans les remerciements.
 - Toujours en attente de Joseph : le sens de « l'auto-dédicace » et le
   choix pour la préface.
+
+## 27 novembre 2026 — dédicace et préface : choix de Joseph ; avant-propos rédigé (en attente)
+
+- Dédicace : **l'auteur l'écrira lui-même** (sens de « l'auto-dédicace »).
+  En attente de son texte.
+- Préface : **pas de préface.** Un avant-propos au nom de l'auteur, placé
+  avant l'introduction dans manuscrit/ouverture.md.
+- Avant-propos tiré des sources : hésitation à donner des secrets
+  (vidéo 07), des gens souffrent parce qu'ils ignorent (vidéo 09), « je
+  ne parle pas pour parler » (vidéo 11), le Saint-Esprit et le père
+  spirituel comme sources de l'enseignement (vidéo 15). Aucun fait de
+  biographie ajouté.

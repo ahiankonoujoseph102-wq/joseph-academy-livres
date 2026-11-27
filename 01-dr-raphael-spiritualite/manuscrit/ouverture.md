@@ -1,3 +1,25 @@
+# Avant-propos
+
+Pendant longtemps, j'ai hésité à enseigner ce que vous allez lire.
+
+Ce n'est pas que ces choses soient mauvaises. C'est que je connais le cœur de l'homme. Je sais qu'il y a un danger à donner des secrets : celui qui les reçoit peut finir par mettre sa foi dans le secret, et non dans Dieu. Il connaît le psaume, il connaît l'heure, il connaît le geste, et il cesse de prier. Il cesse de chercher la face du Seigneur. Et il s'étonne ensuite que rien ne se produise.
+
+Mais j'ai vu une autre souffrance, plus grande encore. **J'ai vu des enfants de Dieu souffrir parce qu'ils ignoraient.** Des croyants sincères, fidèles à leur église, qui prient, qui jeûnent, qui donnent, et dont la vie reste bloquée. Ils ne manquent pas de foi. Ils ne manquent pas de zèle. Ils ignorent seulement comment fonctionne le monde dans lequel ils se battent. Et pendant ce temps, ceux qui servent les ténèbres, eux, connaissent les règles et s'en servent contre eux.
+
+C'est pour eux que j'ai écrit ce livre.
+
+Je ne vous parle pas pour parler. Ce que je vous transmets ici, je ne l'ai pas inventé. **La plus grande partie, c'est le Saint-Esprit qui me l'a enseignée.** Le reste, je l'ai reçu des hommes de Dieu que le Seigneur a placés sur mon chemin, et en premier lieu de mon père spirituel. Je n'ai fait que recevoir, puis transmettre.
+
+Vous trouverez dans ces pages des choses que vous n'avez peut-être jamais entendues : comment se présenter à l'eau et à la terre, comment ouvrir la puissance d'un psaume, comment porter une injustice devant le tribunal de Dieu, comment consacrer sa dîme. Certaines vous surprendront. Je vous demande de les recevoir avec un esprit calme et ouvert, la Bible à la main. Vérifiez chaque verset. Priez sur chaque enseignement. Et gardez ce qui édifie votre vie avec Dieu.
+
+**Car tout ce que contient ce livre ne vaut que par le nom de Jésus.** Sans lui, ce ne sont que des mots. Avec lui, ce sont des clés.
+
+Je prie pour que ce livre vous ouvre les yeux comme Dieu ouvrit autrefois les yeux du serviteur d'Élisée, et que vous voyiez, vous aussi, que ceux qui sont avec vous sont plus nombreux que ceux qui sont contre vous.
+
+**Dr Raphaël**
+
+---
+
 # Introduction
 
 > « Les choses cachées sont à l'Éternel, notre Dieu ; les choses révélées sont à nous et à nos enfants, à perpétuité, afin que nous mettions en pratique toutes les paroles de cette loi. »
