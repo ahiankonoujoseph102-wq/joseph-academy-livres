@@ -365,3 +365,16 @@
 - **Alerte pages :** 12 chapitres à 4 300 mots, plus les pages
   d'ouverture et de fin, donnent environ 190 à 200 pages A5, au bord de
   la limite de 200 pages fixée par Joseph. En attente de son choix.
+
+## 27 novembre 2026 — décision : on reprend tout, la qualité d'abord
+
+- Joseph veut reprendre les chapitres au niveau du chapitre 1, quel que
+  soit le temps. Le livre peut aller jusqu'à 250 pages.
+- Chapitre 1 gardé comme modèle (validé et loué par Joseph).
+- Chapitre 2 réécrit (environ 4 400 mots). Ajouts vérifiés en Louis
+  Segond 1910 : 2 Rois 5, 17 (Naaman et la terre) ; Nombres 20, 14-21
+  (Édom refuse le passage) ; Actes 16, 6-10 (portes fermées en Asie et
+  Bithynie, ouverte en Macédoine) ; Genèse 4, 7 (le péché à la porte) ;
+  Deutéronome 6, 9 (la Parole sur les portes).
+- Format : le client propose A4. Avis donné : A4 déconseillé pour ce
+  genre de livre. En attente du choix.
