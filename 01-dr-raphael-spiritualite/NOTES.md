@@ -501,3 +501,23 @@
 - Passage sur les relations intimes et le dévoreur : **gardé adouci**.
 - Monnaie : **francs CFA** (100 000 francs de bénéfice, 10 000 francs de
   dîme) au lieu des euros de l'auteur. Règle à suivre pour le reste du livre.
+
+## 27 novembre 2026 — chapitre 12 rédigé (en attente de validation)
+
+- « Consacrer, donner et faire fructifier sa dîme », ajouté à
+  manuscrit/partie-4.md. Sources : transcriptions 09, 10, 11.
+- Versets vérifiés : 1 Rois 17, 8-17 ; Matthieu 6, 9-13 ; 10, 41 ; 13, 3-8 ;
+  Galates 6, 6-7 ; Nombres 18, 25-26 ; 2 Corinthiens 9, 6-10 ;
+  Proverbes 21, 20 ; Zacharie 4, 10 ; Luc 14, 28-30 ; 1 Timothée 5, 17-18 ;
+  2 Rois 4, 8-10 et 16-17.
+- Retiré : malédiction contre ceux qui envoient de l'argent envoûté ;
+  « le couteau sec dans le cœur » ; les dons « pour tuer » ou « rendre fou » ;
+  le passage sur les femmes qui dansent ; l'invitation à payer sa dîme à
+  l'auteur et l'offre de remboursement ; « ne pas aimer la gratuité » ;
+  les psaumes pour hommes de Dieu (numéros non donnés).
+- Adouci : les « sorciers » dans l'église (sans citer diacres, prêtres,
+  enfants de chœur) ; « un salarié ne deviendra jamais riche » devenu
+  « un salaire fixe ne se multiplie pas ».
+- Exemple de la saison (janvier, mars) gardé sans chiffres en euros.
+- « Je peux le prouver bibliquement » (l'eau à l'église) : aucun verset
+  donné par l'auteur, donc aucun verset ajouté.
