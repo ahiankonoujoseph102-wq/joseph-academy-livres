@@ -309,3 +309,24 @@
   Daniel 6, 5-10 ; Psaume 55, 18 ; Marc 1, 35 ; Genèse 1, 5 ;
   Psaume 100, 4 ; Psaume 22, 4 ; Psaume 23, 3 ; Psaume 24, 7 ;
   Psaume 20, 2, 5 et 6.
+
+## 27 novembre 2026 — chapitre 7 VALIDÉ (« OK »)
+
+## 27 novembre 2026 — chapitre 8 rédigé, en attente de validation
+
+- « La convocation spirituelle par le Psaume 94 » (vidéos 08, 06, et 02
+  pour le tribunal spirituel).
+- Méthode reprise telle que donnée en vidéo 08 (0 h 20 → 2 h 59, face à
+  l'est, formule trois fois, psaume une fois, prière « Dieu de la
+  vengeance… », trois cycles, « C'est fait »).
+- Ajouté, dans la ligne de la question 6 acceptée : « Vous ne demandez
+  pas la mort de votre adversaire. » Appuyé sur Romains 12, 19.
+- Laissés de côté : « Jésus faisait des incantations » sur le pain et le
+  vin (vidéo 08 ; le texte biblique dit « il rendit grâces ») ; la
+  « vengeance de mort » (vidéo 06) ; les appels à la chaîne YouTube.
+- La citation « Je vous ai donné la connaissance des heures et des
+  temps » n'est pas reprise (pas un verset, l'auteur l'a reconnu).
+- Versets ajoutés, vérifiés en Louis Segond 1910 : Psaume 94 (lu en
+  entier ; versets 1-2, 5-7, 15, 16, 22 cités) ; Luc 18, 1-8 ;
+  Daniel 7, 9-10 ; Zacharie 3, 1 ; Apocalypse 12, 10 ; Romains 12, 19 ;
+  Psaume 37, 5-6.
