@@ -474,3 +474,24 @@
   pour les pratiques), recopiée dans manuscrit/partie-3.md.
 - Parchemin du Psaume 72 : **gardé tel quel**, avec la mise en garde.
 - Reste à demander à l'auteur : Psaume 1, que fait la femme de l'eau ?
+
+## 27 novembre 2026 — ouverture de la partie 4 et chapitre 11 rédigés (en attente)
+
+- Nouveau fichier manuscrit/partie-4.md : ouverture de la quatrième partie
+  et chapitre 11 « Ce qu'est vraiment la dîme » (environ 4 300 mots).
+  Sources : transcriptions 09 et 10.
+- La dîme présentée comme une **obligation** (réponse de l'auteur).
+- Corrections appliquées : vœu de Jacob (Genèse 28, 22) et non d'Abraham ;
+  Malachie 3, 11 cité exactement (« je menacerai celui qui dévore »).
+- Versets vérifiés : Genèse 12, 2 ; 14, 11-23 ; 28, 13-22 ; 31, 41 ; 32, 10 ;
+  Exode 3, 6 ; Lévitique 27, 30 ; Proverbes 3, 9-10 ; Aggée 1, 4-6 ;
+  Malachie 3, 7-12 ; Matthieu 4, 7 ; 5, 17 ; 23, 23 ; Jean 3, 12 ;
+  2 Rois 2, 14 ; Galates 3, 7, 17 et 29 ; Hébreux 7, 1-4 et 8 ;
+  1 Corinthiens 6, 16.
+- Retiré : publicité pour ses livres, appels à s'abonner, liste des noms
+  de Dieu (« Echibokala » non identifiable, « 75 noms » non vérifié),
+  reproches aux fidèles ingrats, changement de nom Saul-Paul (inexact).
+- Gardé mais à signaler : les dévoreurs liés aux relations intimes
+  (adouci, appuyé sur 1 Corinthiens 6, 16).
+- Reporté au chapitre 12 : consécration, à qui donner, dîme de la dîme,
+  esprits opposants, les 90 %, l'exemple de la saison (janvier, mars).
