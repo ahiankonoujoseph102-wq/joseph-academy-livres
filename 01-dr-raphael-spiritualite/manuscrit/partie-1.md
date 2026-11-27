@@ -7,7 +7,7 @@ Le peuple de Dieu ne manque pas de prières. Il ne manque ni de cultes, ni de ve
 
 On peut aimer Dieu de tout son cœur et voir pourtant sa vie se défaire, simplement parce qu'on ignore les règles du monde dans lequel on se bat. Pensez à un joueur plein de bonne volonté qui entre sur un terrain sans connaître les règles du jeu. Il court, il transpire, il s'épuise. Mais il perd, parce que ceux qui jouent contre lui connaissent les règles, et lui ne les connaît pas. **Beaucoup de croyants vivent ainsi : sincères, courageux, fidèles, et pourtant vaincus, parce que personne ne leur a appris comment fonctionne le monde invisible.**
 
-Cette première partie vous donne ces règles. Elle vous fait entrer dans le fonctionnement du monde spirituel : ce qu'il est, comment il est découpé, comment il accueille ou rejette une personne, et ce qui y attire les esprits. Tout ce que vous apprendrez ensuite sur la terre, sur l'eau, sur les psaumes et sur la dîme repose sur ces fondations. **Celui qui les néglige construit sur le sable. Celui qui les reçoit construit sur le roc.**
+Ce livre vous fait découvrir ces règles : les secrets et les codes du monde spirituel. Cette première partie en pose les bases. Elle vous fait entrer dans le fonctionnement du monde spirituel : ce qu'il est, comment il est découpé, comment il accueille ou rejette une personne, et ce qui y attire les esprits. Tout ce que vous apprendrez ensuite sur la terre, sur l'eau, sur les psaumes et sur la dîme repose sur ces fondations. **Celui qui les néglige construit sur le sable. Celui qui les reçoit construit sur le roc.**
 
 ---
 
@@ -26,7 +26,7 @@ Les deux hommes regardaient la même montagne. L'un y voyait une armée ennemie 
 
 Ce serviteur n'était pourtant pas un homme éloigné de Dieu. Il servait un prophète et vivait chaque jour au contact des œuvres de Dieu. Mais au moment décisif, il a été saisi de panique, parce que ses yeux ne voyaient que ce qui se voit. Combien de croyants lui ressemblent ! Ils prient, ils jeûnent, ils ne manquent aucun culte. Mais dès que l'épreuve encercle leur maison, leur commerce ou leur santé, ils reprennent son cri : « Comment ferons-nous ? » Ils ignorent que la montagne est pleine. Ils ignorent que l'issue du combat se décide ailleurs.
 
-C'est la raison d'être de ce livre : **vous apprendre à impacter le physique par le spirituel**, c'est-à-dire à agir sur le monde visible à partir du monde invisible. Ce qui arrive dans votre corps, dans votre famille, dans votre travail et dans vos finances se prépare d'abord dans un monde que vos yeux ne voient pas. Celui qui connaît ce monde peut gouverner sa vie. Celui qui l'ignore se contente de subir ce qui lui arrive.
+C'est la raison d'être de ce livre : vous faire découvrir les secrets et les codes du monde spirituel, pour que vous appreniez à les comprendre, à les pratiquer et à prier avec eux. Autrement dit, **vous apprendre à impacter le physique par le spirituel**, c'est-à-dire à agir sur le monde visible à partir du monde invisible. Ce qui arrive dans votre corps, dans votre famille, dans votre travail et dans vos finances se prépare d'abord dans un monde que vos yeux ne voient pas. Celui qui connaît ce monde peut gouverner sa vie. Celui qui l'ignore se contente de subir ce qui lui arrive.
 
 > **Ce que vous vivez dans le visible s'est d'abord décidé dans l'invisible.**
 
