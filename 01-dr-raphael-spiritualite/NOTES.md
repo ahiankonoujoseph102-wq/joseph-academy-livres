@@ -428,3 +428,8 @@
   Matthieu 26, 44 ; Apocalypse 21, 6 ; Habacuc 2, 3 ; 1 Pierre 2, 23.
 - Ajout fidèle à l'auteur (vidéo 08 : « Et puis, va à la justice ») :
   continuer les démarches de la terre après la convocation.
+- Ajouts au chapitre 8 : David et Saül à En-Guédi (1 Samuel 24, 13 et
+  16) ; section « Trois erreurs à éviter » (colère, pardon et justice
+  avec Marc 11, 25, vérité avec Psaume 94, 11). **Cette section est un
+  ajout du prête-plume**, dans la ligne de ce que l'auteur a accepté
+  (question 6). À signaler à Joseph.

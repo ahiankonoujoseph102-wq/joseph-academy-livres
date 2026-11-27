@@ -455,6 +455,16 @@ Une fois la convocation faite, ne restez pas les bras croisés. **Continuez les 
 
 Et soyez patient. La justice de Dieu ne se manifeste pas toujours le lendemain matin. Le prophète Habacuc, qui se plaignait lui aussi de voir les méchants triompher, reçut cette réponse : « Car c'est une prophétie dont le temps est déjà fixé, elle marche vers son terme, et elle ne mentira pas ; si elle tarde, attends-la, car elle s'accomplira, elle s'accomplira certainement » (Habacuc 2, verset 3). **Ce que Dieu a jugé, il l'exécutera, à son heure.**
 
+## Trois erreurs à éviter
+
+La convocation spirituelle est une arme puissante. C'est précisément pour cela qu'elle doit être maniée avec un cœur droit. Voici trois erreurs qui rendent la convocation sans effet.
+
+**La première erreur est de convoquer dans la colère.** Celui qui se lève la nuit le cœur rempli de haine, qui récite le Psaume 94 en serrant les dents et en souhaitant la ruine de son adversaire, ne vient pas devant le Juge : il vient devant son propre ressentiment. Avant de commencer, calmez votre cœur. Vous venez demander justice, non soulager votre rage.
+
+**La deuxième erreur est de confondre pardon et justice.** Jésus a dit : « Lorsque vous êtes debout faisant votre prière, si vous avez quelque chose contre quelqu'un, pardonnez, afin que votre Père qui est dans les cieux vous pardonne aussi vos offenses » (Marc 11, verset 25). Pardonner ne veut pas dire renoncer à son terrain, à ses enfants ou à son droit. Cela veut dire libérer son cœur de l'amertume et laisser à Dieu le soin de juger. Le pardon garde votre cœur pur ; la convocation remet votre cause au Juge. Les deux vont ensemble.
+
+**La troisième erreur est d'arranger la vérité.** Certains présentent à Dieu une version de leur affaire où ils n'ont jamais rien fait de mal. Mais le Juge connaît tout le dossier : « L'Éternel connaît les pensées de l'homme » (Psaume 94, verset 11). Présentez votre cause telle qu'elle est, avec vos torts s'il y en a. Un dossier honnête devant Dieu vaut mieux qu'un dossier parfait devant les hommes.
+
 ## Le Psaume 22, un second psaume de justice
 
 Il existe un autre psaume que l'on peut utiliser pour la justice selon la même méthode : **le Psaume 22.** Vous le connaissez déjà comme l'un des trois psaumes qui ouvrent la prière. Mais il est aussi un psaume de justice. Si l'Esprit de Dieu vous conduit vers lui plutôt que vers le Psaume 94, suivez exactement la même procédure, en remplaçant simplement le numéro du psaume dans la parole d'ouverture.
@@ -466,6 +476,8 @@ Le mot « vengeance » peut surprendre ou inquiéter certains croyants. Jésus n
 La réponse se trouve dans la Parole elle-même. L'apôtre Paul écrit : « Ne vous vengez point vous-mêmes, bien-aimés, mais laissez agir la colère ; car il est écrit : **À moi la vengeance, à moi la rétribution, dit le Seigneur** » (Romains 12, verset 19). Voilà toute la différence. **Le croyant ne se venge pas lui-même. Il remet la vengeance à Dieu.** Il ne prend pas les armes, il ne paie pas un féticheur, il ne cherche pas à faire du mal à celui qui l'a offensé. Il porte sa cause devant le seul Juge qui juge avec justice, et il le laisse agir.
 
 C'est exactement ce que fit Jésus lui-même. L'apôtre Pierre écrit de lui : « Lui qui, injurié, ne rendait point d'injures, maltraité, ne faisait point de menaces, mais **s'en remettait à celui qui juge justement** » (1 Pierre 2, verset 23). Le Fils de Dieu, accusé injustement, condamné injustement, ne s'est pas défendu par la violence. Il a remis sa cause au Père. Et le Père l'a ressuscité.
+
+David avait appris cette leçon dans la caverne d'En-Guédi. Saül le poursuivait pour le tuer, et voici que le roi entra seul dans la caverne où David se cachait. Les hommes de David le pressèrent de frapper. David se contenta de couper discrètement le pan du manteau de Saül. Puis, une fois le roi sorti, il l'appela et lui montra le morceau d'étoffe : il aurait pu le tuer, et il ne l'avait pas fait. Et il lui dit : « L'Éternel sera juge entre moi et toi, et l'Éternel me vengera de toi ; **mais je ne porterai point la main sur toi.** […] L'Éternel jugera et prononcera entre moi et toi ; il regardera, il défendra ma cause, il me rendra justice en me délivrant de ta main » (1 Samuel 24, versets 13 et 16). **David a remis sa cause au Juge, et il a gardé ses mains pures.** Quelques années plus tard, il était roi, et Saül n'était plus.
 
 C'est précisément ce que fait la convocation spirituelle. Vous ne demandez pas la mort de votre adversaire. **Vous demandez que justice soit rendue, que le droit soit dit et que ce qui vous a été pris vous soit restitué.** David l'avait compris : « Recommande ton sort à l'Éternel, mets en lui ta confiance, et il agira. Il fera paraître ta justice comme la lumière, et ton droit comme le soleil à son midi » (Psaume 37, versets 5 et 6).
 
@@ -506,6 +518,7 @@ Je vous les donne, parce que je crois que chaque enfant de Dieu doit pouvoir por
 - **Le Psaume 94 est le psaume de la justice** : « le jugement sera conforme à la justice » (verset 15). Le Psaume 22 peut aussi être utilisé.
 - **La méthode** : entre minuit vingt et deux heures cinquante-neuf ; à genoux, face à l'est, la Bible ouverte ; trois fois « Ici et maintenant, par l'Esprit de Dieu, je fais appel à la puissance de ce Psaume 94 » ; le psaume une fois ; la prière « Dieu de la vengeance, dans le nom de Jésus-Christ de Nazareth, je te confie cette affaire… » ; trois cycles ; puis « C'est fait ».
 - **Après la convocation, continuez les démarches de la terre, et soyez patient** (Habacuc 2, verset 3).
+- **Trois erreurs à éviter** : convoquer dans la colère, confondre pardon et justice, arranger la vérité.
 - **Le croyant ne se venge pas lui-même. Il remet sa cause à Dieu**, comme Jésus qui « s'en remettait à celui qui juge justement ». Il demande justice, non la mort de son adversaire. **Ne présentez à Dieu que des causes justes.**
 
 ## Vers le chapitre 9
