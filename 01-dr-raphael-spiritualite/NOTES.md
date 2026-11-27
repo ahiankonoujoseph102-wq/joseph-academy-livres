@@ -101,3 +101,24 @@
   pas chrétien » (vidéo 06).
 - Points gardés, à confirmer par Joseph : les routes tracées par les
   esprits et le témoignage de la voiture sans conducteur.
+
+## 27 novembre 2026 — chapitre 1 rejeté par Joseph, réécrit
+
+- Avis de Joseph : « médiocre et générique », pas assez captivant ni
+  professionnel. **Gardé.** La première version suivait trop les
+  sources.
+- Consignes de Joseph, gardées :
+  - **Ne jamais laisser voir que le livre vient d'une masterclass.**
+    Aucune mention de masterclass, de session, de participants.
+  - Le prête-plume structure, explique, enrichit : récits bibliques,
+    images, histoires, explications.
+- **Limite maintenue (CLAUDE.md, section 5)** : les histoires ajoutées
+  sont des récits bibliques vérifiés ou des exemples présentés comme
+  tels (« Imaginez… »). Jamais un faux témoignage, un faux nom ou un
+  faux chiffre présenté comme réel. Les vrais témoignages doivent venir
+  du Dr Raphaël.
+- Versets ajoutés, tous vérifiés en Louis Segond 1910 : 2 Rois 6, 15-17 ;
+  Colossiens 1, 16 ; 2 Corinthiens 4, 18 ; Jean 3, 8 ; Daniel 10, 12-13 ;
+  Éphésiens 6, 12 ; Genèse 1, 16-17 et 20 ; 2 Corinthiens 12, 2 ;
+  Exode 7, 11-12 ; Actes 16, 16-18 ; 1 Corinthiens 15, 45 ;
+  Matthieu 6, 33 ; Matthieu 10, 14.
