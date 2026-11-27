@@ -295,3 +295,135 @@ Désormais, vous savez que votre pays a son esprit, que votre quartier a ses lie
 ## Vers le chapitre 3
 
 Vous connaissez maintenant la carte du monde invisible. Vous savez que chaque territoire a ses maîtres, ses frontières et ses lieux de décision. Mais connaître la carte ne suffit pas pour y circuler librement. Un territoire peut vous accueillir ou vous rejeter. Il peut vous ouvrir toutes ses portes ou vous les fermer l'une après l'autre, quels que soient vos efforts. Tout dépend d'une chose que la plupart des croyants ignorent : **la reconnaissance du territoire.** C'est elle que le chapitre suivant va vous faire découvrir.
+
+---
+
+# Chapitre 3 — Être reconnu par un territoire
+
+> « Il l'appela Rehoboth, car, dit-il, l'Éternel nous a maintenant mis au large, et nous prospérerons dans le pays. »
+> **Genèse 26, verset 22**
+
+## Les puits d'Isaac
+
+Isaac s'était installé dans la région de Guérar, sur une terre qui n'était pas la sienne. Dieu l'avait béni : la première année, il avait semé et récolté au centuple. Mais pour vivre dans ce pays, pour y faire boire ses troupeaux et y bâtir son avenir, il lui fallait de l'eau. Ses serviteurs se mirent donc à creuser.
+
+Ils trouvèrent un puits d'eau vive. Aussitôt, les bergers de Guérar se levèrent contre eux : « L'eau est à nous. » Isaac appela ce puits Ések, ce qui veut dire « dispute ». Ses serviteurs creusèrent un deuxième puits. Une nouvelle querelle éclata. Isaac l'appela Sitna, « hostilité ». Il partit encore, creusa un troisième puits, et cette fois, personne ne vint le lui disputer. Il l'appela Rehoboth, en disant : « L'Éternel nous a maintenant mis au large, et nous prospérerons dans le pays » (Genèse 26, versets 20 à 22).
+
+Arrêtez-vous sur cette histoire, car elle est celle de beaucoup d'entre nous. Isaac était béni. Il était l'héritier de la promesse faite à Abraham. Il avait la faveur de Dieu. Et pourtant, deux fois de suite, la terre où il creusait lui a été disputée. Ce n'est qu'au troisième puits qu'il a trouvé un lieu qui ne le rejetait plus, un lieu où il pouvait enfin dire : **« Nous prospérerons dans le pays. »**
+
+Combien de croyants creusent puits après puits sans jamais trouver leur Rehoboth ! Ils ouvrent un commerce, et tout se ligue contre eux. Ils changent de quartier, et les mêmes querelles les rattrapent. Ils implantent une église, et elle ne grandit pas. Ils ont la bénédiction de Dieu, comme Isaac. Mais ils travaillent sur des terres qui ne les ont pas reçus.
+
+Au chapitre précédent, nous avons découvert que chaque territoire a ses maîtres. Ce chapitre vous révèle la loi qui décide si un territoire vous accueille ou vous repousse : **la loi de la reconnaissance.**
+
+> **Un territoire qui ne vous reconnaît pas vous dispute chaque puits que vous creusez.**
+
+## Un monde qui fonctionne par la reconnaissance
+
+Le monde spirituel fonctionne par la reconnaissance. Chaque territoire est placé sous l'autorité d'un esprit, et cet esprit doit vous reconnaître pour que vous puissiez y opérer. **Tant que le territoire ne vous a pas identifié, il ne vous laisse pas agir.** Et s'il ne vous reconnaît pas, il vous rejette.
+
+Pour le comprendre, regardez comment fonctionnent les lieux protégés de ce monde. Prenez le Port autonome de Lomé. On n'y entre pas comme on entre dans un marché. Avant même d'atteindre la plateforme ou les entrepôts, vous passez devant un gardien. Ce gardien vérifie votre badge. Si votre badge n'est pas valide, vous ne passez pas. Et il en va de même dans beaucoup de bâtiments et de sociétés à travers le monde : on vous demande votre badge, votre empreinte digitale, parfois même de présenter votre visage devant une caméra. Si vous êtes enregistré dans la base de données, la porte s'ouvre. Si vous n'y êtes pas, elle reste fermée.
+
+Et remarquez ceci : **dans les lieux où la règle est respectée, le rang ne change rien.** Vous pouvez être ministre. Vous pouvez être une haute autorité de l'État. Vous pouvez même être chef d'État. Tant que vous n'êtes pas enregistré, tant que vous n'êtes pas autorisé, la porte ne s'ouvre pas.
+
+**Le monde spirituel fonctionne exactement ainsi.** Chaque territoire a sa porte et son gardien. Que vous veniez y ouvrir un commerce, y implanter une église ou simplement y habiter après un déménagement, le territoire doit vous identifier. Il doit vous inscrire, en quelque sorte, dans sa base de données. Sans cela, vous restez un étranger devant une porte fermée.
+
+Pensez à deux pêcheurs qui partent sur la même rivière, avec les mêmes filets et la même pirogue. Le premier lance ses filets toute la journée et revient épuisé, avec presque rien. Le second semble à peine travailler, et pourtant ses filets se remplissent. Les gens disent qu'il a de la chance. **Ce n'est pas de la chance. La rivière reconnaît l'un, et elle ne reconnaît pas l'autre.** Beaucoup de ceux qui réussissent ainsi dans ce monde ont compris cette loi et s'en servent par des voies obscures. Le croyant, lui, doit apprendre à se faire reconnaître par les voies de Dieu.
+
+Écoutez bien ceci, car c'est ici que beaucoup de chrétiens se trompent. Ils pensent qu'il leur suffit d'avoir le Saint-Esprit pour que toutes les portes s'ouvrent. Ils prient en langues, ils jeûnent, ils servent Dieu, et ils ne comprennent pas pourquoi rien n'avance. Imaginez un serviteur de Dieu qui implante une église dans un quartier sans avoir préparé ce territoire. Il commence avec quinze fidèles. Quelques mois plus tard, ils ne sont plus que huit, puis cinq. Quand l'assemblée semble enfin approcher de vingt personnes, elle redescend aussitôt. Ce n'est pas que le chef du village soit plus puissant que lui. Ce n'est pas que les esprits du lieu soient plus forts que le Saint-Esprit. **C'est que le monde spirituel est gouverné par des lois, et que ces lois s'appliquent aussi au croyant.**
+
+Le fils d'un président de la République qui commet un crime reste soumis à la loi. Le nom de son père ne le dispense pas du jugement. De la même manière, l'enfant de Dieu qui ignore les lois du monde spirituel en subit les conséquences, quel que soit l'amour que son Père lui porte. Voilà pourquoi tant de croyants souffrent : **ce n'est pas qu'ils manquent de prière, c'est qu'ils ignorent les lois et les principes du monde dans lequel ils prient.** Le territoire ne les reconnaît pas, et ils ne savent pas pourquoi.
+
+## Abraham à la porte de la ville
+
+L'Écriture nous montre comment un homme de Dieu se fait reconnaître sur une terre étrangère. Quand Sara mourut, Abraham vivait au pays de Canaan. Dieu lui avait promis ce pays tout entier, à lui et à sa descendance. Et pourtant, il ne s'est pas emparé d'un morceau de terre par la force. Il s'est levé, il est allé vers les fils de Heth, les habitants du lieu, et il leur a dit : « Je suis étranger et habitant parmi vous ; donnez-moi la possession d'un sépulcre chez vous » (Genèse 23, verset 4).
+
+Remarquez la réponse des habitants : « Tu es un prince de Dieu au milieu de nous » (Genèse 23, verset 6). Ils reconnaissaient déjà en lui un homme de Dieu. Mais cela ne suffisait pas. Abraham a demandé, il a négocié, il a payé le prix, et le champ de Macpéla devint sa propriété « aux yeux des fils de Heth et de tous ceux qui entraient par la porte de sa ville » (Genèse 23, verset 18). **Il a été reconnu publiquement, à la porte de la ville, là où se tenait l'autorité du lieu.**
+
+Voilà le modèle. L'homme à qui Dieu avait promis tout le pays a commencé par se présenter, par demander et par se faire reconnaître. Il n'a pas méprisé l'autorité du territoire où il vivait. Et c'est précisément parce qu'il l'a fait que sa possession est devenue indiscutable.
+
+Cette règle vaut dans le visible comme dans l'invisible. Celui qui arrive dans un village et méprise le chef du village se prépare des difficultés. Celui qui arrive sur un territoire spirituel et méprise l'autorité qui y règne se prépare des combats inutiles. **Il faut entrer en contact avec le territoire avant de prétendre y régner.** Je vous enseignerai, dans la deuxième partie de ce livre, comment entrer en contact avec la terre et comment sceller votre place par le sacrifice. Ce sont les deux clés qui vous feront reconnaître et qui vous permettront de dominer un territoire. Mais avant de les recevoir, il faut comprendre ce qui se trouve derrière toute réussite.
+
+## Derrière chaque œuvre, un esprit
+
+**Rien ne réussit dans la vie sans un esprit qui l'accompagne.** C'est une loi que beaucoup ignorent. Derrière chaque personne qui prospère, derrière chaque entreprise qui grandit, derrière chaque œuvre qui porte du fruit, il y a un esprit. Si aucun esprit n'accompagne ce que vous faites, vous échouerez, même avec tout le talent du monde.
+
+Chaque métier a son esprit. Il y a l'esprit du couturier, l'esprit du plombier, l'esprit du banquier, l'esprit du commerçant. Vous avez sans doute connu un tailleur dont tout le monde parle sans qu'il ait jamais fait de publicité : ses clients viennent d'eux-mêmes, et chacun repart fier de son habit. Ce n'est pas seulement une question d'habileté. Un esprit accompagne son travail. **Chaque activité a son esprit, tout comme chaque serviteur de Dieu a son onction.**
+
+La Bible le montre de façon frappante. Lorsque Dieu voulut faire construire le tabernacle, il ne choisit pas seulement un bon artisan. Il dit à Moïse : « J'ai choisi Betsaleel, fils d'Uri, fils de Hur, de la tribu de Juda. Je l'ai rempli de l'Esprit de Dieu, de sagesse, d'intelligence, et de savoir pour toutes sortes d'ouvrages, je l'ai rendu capable de faire des inventions, de travailler l'or, l'argent et l'airain, de graver les pierres à enchâsser, de travailler le bois, et d'exécuter toutes sortes d'ouvrages » (Exode 31, versets 2 à 5). Le travail du bois, de l'or et de la pierre était un travail manuel. Et pourtant, **c'est l'Esprit de Dieu qui rendait la main de Betsaleel capable.**
+
+Je peux en témoigner dans mon propre ministère. Lorsque je prie, des personnes qui vivent en Europe, en Amérique ou dans différents pays d'Afrique sont guéries et délivrées, alors qu'elles ne m'ont jamais vu. Elles ont seulement entendu ma voix. Ce n'est pas ma voix qui les guérit. Ce n'est pas mon intelligence. Si je prie bien, si j'enseigne bien, si je prêche bien, ce n'est pas moi : **c'est l'Esprit de Dieu qui m'accompagne et qui me conduit.**
+
+Il existe donc toutes sortes d'esprits capables d'accompagner une œuvre. Mais il y en a un qui est au-dessus de tous : **le plus puissant de tous les esprits, c'est le Saint-Esprit.** Dieu l'a déclaré par le prophète Zacharie : « Ce n'est ni par la puissance ni par la force, mais c'est par mon esprit, dit l'Éternel des armées » (Zacharie 4, verset 6). Lorsque le Saint-Esprit accompagne ce que vous faites, tout devient plus facile.
+
+> **Le talent ouvre la boutique. L'esprit qui l'accompagne la fait prospérer.**
+
+Mais pour que cet esprit puisse agir à travers vous, encore faut-il que vous soyez chargé et connecté. C'est ce que va nous faire comprendre une image toute simple.
+
+## L'homme est comme un téléphone
+
+Dans le monde spirituel, lorsqu'une personne est appelée à grandir, elle est souvent représentée sous la forme d'un téléphone. L'Esprit de Dieu m'a donné cette image pour faire comprendre ce que beaucoup ne comprennent pas.
+
+Prenez le téléphone le plus moderne du marché. Il a le plus bel écran, les meilleures applications, les réglages les plus avancés. Mais si sa batterie est vide, ou si elle est abîmée, il ne sert à rien. Il reste éteint dans votre main. **Il en va de même de l'être humain.** Chaque personne porte en elle une énergie. Cette énergie, c'est la puissance spirituelle. Tant qu'elle est chargée, les dimensions de votre vie peuvent s'activer. Quand elle se vide, il y a des choses qui ne peuvent plus fonctionner en vous, quels que soient vos dons et vos diplômes.
+
+La bonne nouvelle, c'est que ceux qui croient en Jésus-Christ ont reçu le Saint-Esprit, **et le Saint-Esprit les recharge.** Il est la source d'énergie qui ne s'épuise pas. Le croyant qui demeure dans la présence de Dieu est comme un téléphone qui reste branché.
+
+Mais l'image va plus loin. Un téléphone chargé ne suffit pas : il lui faut aussi un réseau. Vous pouvez avoir en main le téléphone le plus cher du monde. Si vous arrivez dans une zone où il n'y a pas d'antenne relais, il ne captera rien. Vous ne pourrez ni appeler, ni recevoir, ni envoyer le moindre message. **Le territoire, c'est le réseau.** Si le territoire ne vous reconnaît pas, vous pouvez être chargé du Saint-Esprit et pourtant ne pas fonctionner pleinement sur ce territoire. C'est pourquoi il faut prendre autorité sur le lieu où vous vivez et où vous travaillez.
+
+Retenez aussi l'image inverse, car elle vous éclairera sur les attaques que subissent certaines personnes. Dans le monde de la sorcellerie, lorsqu'on veut détruire quelqu'un, on ne le représente pas comme un téléphone, mais comme un tubercule d'igname. Observez une igname : elle peut paraître propre et saine à l'extérieur, alors qu'elle pourrit déjà de l'intérieur. **La destruction d'une personne commence souvent à l'intérieur, bien avant de se voir à l'extérieur.**
+
+## L'installation spirituelle
+
+Puisque l'homme est comme un téléphone, on comprend qu'il puisse recevoir ce qu'un autre lui transmet. Vous savez qu'avec un téléphone, on peut envoyer un fichier à un autre téléphone, d'un simple geste, sans fil. **Dans le monde spirituel aussi, ce qu'un homme de Dieu porte peut se transmettre.**
+
+Lorsqu'un homme ou une femme est introduit dans le ministère prophétique, il reçoit ce que l'on appelle une installation spirituelle. On l'équipe, dans le monde de l'esprit, comme on équipe un commandant de bord avant le vol : un casque spirituel pour entendre la voix de Dieu, des lunettes spirituelles pour voir ce que les autres ne voient pas, un manteau pour exercer dans la démonstration de la puissance, et des capacités qui lui permettent de parler aux esprits et de leur commander.
+
+La Bible nous montre cette transmission de façon éclatante. Au moment où Élie allait être enlevé, il dit à Élisée : « Demande ce que tu veux que je fasse pour toi, avant que je sois enlevé d'avec toi. » Élisée répondit : « Qu'il y ait sur moi, je te prie, une double portion de ton esprit ! » (2 Rois 2, verset 9). Après l'enlèvement d'Élie, Élisée ramassa le manteau qu'il avait laissé tomber, en frappa les eaux du Jourdain, et les eaux se partagèrent. Les fils des prophètes qui le virent s'écrièrent : « L'esprit d'Élie repose sur Élisée ! » (2 Rois 2, verset 15). **Ce qui était sur le père était passé sur le fils.**
+
+C'est le même Élisée qui, plus tard, à Dothan, demanda à Dieu d'ouvrir les yeux de son serviteur. Ce que l'un voyait, il a pu le faire voir à l'autre. **La vision, l'onction et l'autorité spirituelle se transmettent.** Certaines personnes qui n'étaient pas prophètes se sont mises à prophétiser, à faire des miracles et des prodiges, parce qu'un homme de Dieu leur a transmis ce qu'il portait.
+
+C'est pourquoi le croyant qui s'approche d'un homme ou d'une femme de Dieu doit savoir ce qu'il vient chercher. Ne vous laissez pas attirer par son apparence, par son charisme, par sa carrière ou par sa réputation. Ne cherchez pas à le séduire, et ne vous laissez pas séduire. **Cherchez l'onction. Cherchez l'énergie spirituelle qu'il porte.** C'est elle qui changera votre vie.
+
+Un avertissement s'impose ici. Beaucoup de croyants veulent commander le monde des esprits sans y avoir jamais été préparés. Ils ont entendu dire qu'un chrétien a autorité sur les esprits, et c'est vrai. Mais **commander les esprits n'est pas un jeu, et ce n'est pas donné à tous de la même manière.** Celui qui s'y aventure sans préparation s'expose à des combats qu'il ne sait pas mener. Dans ce livre, je vous donne les clés qui sont accessibles à tout croyant. Pour aller plus loin, il vous faudra être accompagné. Et cela nous conduit à la dernière vérité de ce chapitre.
+
+## Le père spirituel
+
+Élisée n'est pas devenu Élisée tout seul. Avant de recevoir le manteau d'Élie, il l'avait suivi et servi. Timothée n'est pas devenu Timothée tout seul : Paul l'appelait « mon enfant légitime en la foi » (1 Timothée 1, verset 2). **Dans le monde spirituel, il y a des dimensions que vous n'atteindrez jamais sans un père spirituel.** Il y a des réussites que vous n'obtiendrez jamais sans lui.
+
+Pourquoi ? Parce qu'il faut quelqu'un qui ait une autorité spirituelle pour vous apprendre ce qu'il faut faire, pour vous corriger quand vous vous trompez et pour vous soutenir dans le combat. Celui qui entre dans le monde spirituel sans guide ressemble à un voyageur qui s'aventure dans un pays inconnu sans carte et sans escorte. Il peut avancer un moment. Mais au premier piège, il tombe.
+
+Le père spirituel est souvent un homme de Dieu que vous avez servi, auprès duquel vous avez appris, et qui décide, au moment voulu, de vous transmettre ce qu'il porte, par l'imposition des mains. Il ne le fait pas pour tout le monde, ni n'importe quand. **La transmission suppose une relation.**
+
+Choisissez cependant avec sagesse. Il existe de faux hommes de Dieu, et tous ceux qui se présentent comme pères spirituels ne le sont pas. Ne choisissez pas quelqu'un parce qu'il est célèbre ou parce que son église est grande. Choisissez quelqu'un dont vous êtes intimement convaincu que Dieu l'utilise, quelqu'un que vous reconnaissez dans votre esprit comme votre père. **Un vrai père spirituel ne vous rend pas dépendant de lui. Il vous rend capable de marcher avec Dieu.**
+
+> **Le manteau ne tombe pas sur celui qui passe. Il tombe sur celui qui a suivi.**
+
+---
+
+## Faites le point
+
+**Pour réfléchir**
+
+1. Relisez l'histoire des puits d'Isaac (Genèse 26, versets 18 à 22). Avez-vous déjà vécu une situation où vous avez dû « creuser plusieurs puits » avant de trouver un lieu qui vous accueille ?
+2. Expliquez avec vos propres mots ce que veut dire « être reconnu par un territoire ». Quel exemple de la vie courante vous aide le mieux à le comprendre ?
+3. Pourquoi Abraham, à qui Dieu avait promis tout le pays, a-t-il demandé aux fils de Heth de lui céder un champ ? Que vous apprend son attitude ?
+4. Dans l'image du téléphone, que représentent la batterie, la recharge et le réseau ?
+5. Pourquoi faut-il chercher l'onction d'un homme de Dieu plutôt que son charisme ou sa réputation ?
+
+**Pour pratiquer**
+
+1. **Faites le bilan de vos territoires.** Reprenez la liste des territoires que vous avez dressée au chapitre précédent. Pour chacun, posez-vous la question : « Ce lieu m'accueille-t-il, ou me dispute-t-il chaque puits ? » Notez les signes de rejet que vous observez : projets qui n'aboutissent pas, conflits qui reviennent, clients qui ne viennent pas.
+2. **Vérifiez votre batterie.** Pendant une semaine, notez chaque soir dans votre cahier le temps que vous avez réellement passé dans la présence de Dieu : prière, lecture de la Bible, adoration. Demandez-vous honnêtement si votre batterie est chargée ou si elle se vide.
+3. **Réfléchissez à votre père spirituel.** Avez-vous un père ou une mère spirituelle ? Si oui, écrivez ce que vous avez déjà reçu de lui et ce que vous attendez encore de Dieu à travers lui. Si non, priez pendant sept jours pour que Dieu vous conduise vers la bonne personne, et notez les noms qui vous viennent à l'esprit sans vous précipiter.
+
+## Ce qu'il faut retenir
+
+- **Le monde spirituel fonctionne par la reconnaissance.** Un territoire qui ne vous reconnaît pas vous rejette, comme les bergers de Guérar ont disputé les puits d'Isaac.
+- **Les lois du monde spirituel s'appliquent aussi au croyant.** Avoir le Saint-Esprit ne dispense pas de connaître ces lois.
+- **Il faut entrer en contact avec un territoire avant de prétendre y régner**, comme Abraham s'est fait reconnaître à la porte de la ville.
+- **Rien ne réussit sans un esprit qui l'accompagne.** Chaque métier a son esprit, et le plus puissant de tous est le Saint-Esprit.
+- **L'homme est comme un téléphone** : sa batterie est sa puissance spirituelle, le Saint-Esprit la recharge, et le territoire est son réseau.
+- **L'onction se transmet**, comme le manteau d'Élie est passé à Élisée. Il y a des dimensions qu'on n'atteint pas sans un père spirituel.
+
+## Vers le chapitre 4
+
+Vous savez maintenant que le monde spirituel fonctionne par la reconnaissance et que derrière toute œuvre se tient un esprit. Mais les esprits n'agissent pas seulement à travers les hommes et les lieux. Ils agissent aussi à travers la création qui nous entoure : les plantes que nous cultivons, les animaux que nous élevons, les odeurs que nous respirons, les sons que nous écoutons et les couleurs que nous portons. Le chapitre suivant vous fait découvrir **les trois règnes et ce qui attire les esprits.**

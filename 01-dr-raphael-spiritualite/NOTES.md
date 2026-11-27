@@ -202,3 +202,18 @@
 - Chapitre 2 aligné sur le nouveau titre (renvoi à la partie
   « pratique », mention des « codes du monde spirituel »). Renvoyé à
   Joseph pour validation.
+
+## 27 novembre 2026 — chapitre 2 VALIDÉ (« OK »)
+
+## 27 novembre 2026 — chapitre 3 rédigé, en attente de validation
+
+- « Être reconnu par un territoire » (sources : vidéos 03, 04, 11).
+- Reformulé : « nul n'est au-dessus des lois spirituelles, même le
+  Saint-Esprit » devient « les lois du monde spirituel s'appliquent
+  aussi au croyant » (la phrase d'origine pose un problème de doctrine).
+- L'erreur de l'auteur sur le serviteur d'Élisée (nommé Guéhazi en
+  2 Rois 6) n'est pas reprise.
+- Versets ajoutés, vérifiés en Louis Segond 1910 : Genèse 26, 12 et
+  18-22 ; Genèse 23, 3-20 ; Exode 31, 2-5 ; Zacharie 4, 6 ;
+  2 Rois 2, 9-15 ; 1 Timothée 1, 2 ; 1 Rois 19, 21 (Élisée au service
+  d'Élie, sans citation).
