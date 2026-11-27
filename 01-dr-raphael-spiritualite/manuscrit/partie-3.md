@@ -144,3 +144,144 @@ Mais n'oubliez jamais ce que nous avons dit au début de ce chapitre : le psaume
 ## Vers le chapitre 7
 
 Vous savez maintenant ce que sont les psaumes et comment libérer leur puissance. Mais un psaume puissant récité au mauvais moment peut produire l'effet inverse de celui que vous cherchez. Il y a des psaumes pour l'aube et des psaumes pour la nuit, des psaumes qui ouvrent la prière et un psaume qui la ferme, des psaumes de combat qu'il ne faut jamais réciter en plein soleil. Le chapitre suivant vous apprend à **prier avec les psaumes au fil du jour.**
+
+---
+
+# Chapitre 7 — Prier avec les psaumes au fil du jour
+
+> « Il y a un temps pour tout, un temps pour toute chose sous les cieux. »
+> **Ecclésiaste 3, verset 1**
+
+## Les fenêtres ouvertes de Daniel
+
+Un édit venait d'être signé par le roi Darius. Pendant trente jours, quiconque adresserait une prière à un autre que le roi serait jeté dans la fosse aux lions. Les ennemis de Daniel l'avaient obtenu précisément pour le piéger, car ils savaient qu'il ne cesserait pas de prier son Dieu.
+
+Que fit Daniel ? La Bible le rapporte simplement : « Lorsque Daniel sut que le décret était écrit, il se retira dans sa maison, où les fenêtres de la chambre supérieure étaient ouvertes dans la direction de Jérusalem ; et trois fois le jour il se mettait à genoux, il priait, et il louait son Dieu, comme il le faisait auparavant » (Daniel 6, verset 10).
+
+Remarquez les mots : **trois fois le jour, comme il le faisait auparavant.** La prière de Daniel n'était pas une réaction à la crise. C'était un rythme. Il avait ses heures, et ni la menace des lions ni le décret d'un roi ne pouvaient les lui faire abandonner. David connaissait le même rythme : « Le soir, le matin, et à midi, je soupire et je gémis, et il entendra ma voix » (Psaume 55, verset 18). Jésus lui-même, « vers le matin, pendant qu'il faisait encore très sombre, il se leva, et sortit pour aller dans un lieu désert, où il pria » (Marc 1, verset 35).
+
+Les grands hommes de prière ne priaient pas n'importe quand. **Ils connaissaient la valeur des heures.** Ce chapitre vous apprend à faire de même avec les psaumes : comment ouvrir et fermer une prière, quels psaumes conviennent à chaque moment du jour et de la nuit, et quels psaumes il ne faut jamais pratiquer quand le soleil est haut.
+
+> **Le même psaume, au bon moment, ouvre une porte. Au mauvais moment, il peut en fermer une autre.**
+
+## Le jour commence le soir
+
+Pour savoir à quel moment pratiquer un psaume, il faut d'abord comprendre comment Dieu compte le temps. Nous avons pris l'habitude de faire commencer la journée le matin, au lever du soleil. Mais relisez le premier chapitre de la Bible : « Ainsi, il y eut un soir, et il y eut un matin : ce fut le premier jour » (Genèse 1, verset 5). **Le soir vient en premier.** Dans le calendrier de Dieu, la journée ne commence pas au lever du soleil, mais à la tombée de la nuit.
+
+Voici comment se découpent les heures dans le monde spirituel. Gardez ce découpage en mémoire, car chaque fois qu'on vous dira de faire une prière « le soir », « la nuit », « à l'aube » ou « à midi », vous devrez savoir exactement de quel moment il s'agit.
+
+**Le coucher du soleil**, entre dix-sept heures trente et dix-huit heures, est un moment à part : c'est le passage du jour à la nuit.
+
+**Le soir** va de dix-huit heures à vingt-deux heures.
+
+**La nuit** va de vingt-deux heures à trois heures du matin, c'est-à-dire jusqu'à deux heures cinquante-neuf. Son cœur, son milieu exact, est minuit.
+
+**L'aube** commence à trois heures et va jusqu'à six heures.
+
+**La matinée** va de six heures à midi.
+
+**L'après-midi** va de midi à dix-huit heures. Et ce que nous appelons **la journée**, c'est tout le temps qui va de six heures à dix-huit heures, quand le soleil est présent.
+
+### Le vrai jour de jeûne
+
+Cette manière de compter change aussi votre façon de jeûner. Beaucoup de croyants jeûnent du matin jusqu'à dix-huit heures, puis recommencent le lendemain matin, et disent après trois jours : « J'ai fait trois jours de jeûne et prière. » Ce n'est pas exact. **De six heures à dix-huit heures, vous avez fait un demi-jour.** Un jour complet, ce sont les deux temps réunis : le soir et le matin, les vingt-quatre heures. **Un véritable jour de jeûne commence à minuit et se termine le minuit suivant.** Celui qui jeûne trois fois de six heures à dix-huit heures a jeûné un jour et demi, non trois jours. Ce n'est pas une question de vocabulaire. Dans le monde spirituel, les engagements se comptent exactement.
+
+## Ouvrir la prière
+
+Vous voulez prier, que ce soit dans une séance de prière avec d'autres ou seul dans votre chambre. Vous voulez que votre prière soit intense. Vous voulez que les anges de Dieu descendent et vous assistent. Vous voulez que ce que vous direz ne vienne pas seulement de votre intelligence, mais que l'Esprit de Dieu vous inspire. Voici comment ouvrir la dimension surnaturelle de la prière.
+
+**Commencez toujours par chanter.** Avant toute prière, il faut chanter pour ouvrir le ciel : une louange, une adoration. La Bible nous en donne l'ordre : « Entrez dans ses portes avec des louanges, dans ses parvis avec des cantiques ! Célébrez-le, bénissez son nom ! » (Psaume 100, verset 4). On n'entre pas chez le roi en criant ses besoins. On entre par la porte de la louange.
+
+Quand vous avez fini de chanter, mettez-vous à genoux. Puis récitez successivement trois psaumes, une fois chacun, en les faisant précéder chaque fois du nom de Dieu :
+
+Dites trois fois « Jéhovah Saint », puis récitez **le Psaume 22**.
+Dites trois fois « Jéhovah Saint », puis récitez **le Psaume 23**.
+Dites trois fois « Jéhovah Saint », puis récitez **le Psaume 24**.
+
+Ensuite seulement, commencez votre prière et présentez à Dieu tout ce que vous avez à lui dire. **Quand vous avez fait cela, le monde spirituel se dégage, l'assistance d'en haut descend, et une puissance surnaturelle vous entoure.**
+
+Lisez ces trois psaumes avec attention, et vous comprendrez quelque chose de leur force. Le Psaume 22 commence par un cri de détresse, mais il proclame aussitôt : « Pourtant tu es le Saint, tu sièges au milieu des louanges d'Israël » (Psaume 22, verset 4). Dieu habite la louange de son peuple. Le Psaume 23 est celui du berger : « Il me conduit dans les sentiers de la justice, à cause de son nom » (Psaume 23, verset 3). Il vous place sous la conduite de Dieu pour la suite de votre prière. Et le Psaume 24 ouvre les portes : « Portes, élevez vos linteaux ; élevez-vous, portes éternelles ! Que le roi de gloire fasse son entrée ! » (Psaume 24, verset 7). **Le cri, la conduite, puis les portes ouvertes : voilà le chemin par lequel ces trois psaumes vous font entrer dans la présence de Dieu.**
+
+## Fermer la prière
+
+Une prière bien ouverte doit aussi être bien fermée. Beaucoup de croyants prient longtemps, puis s'arrêtent brusquement, sans sceller ce qu'ils ont demandé. Or il existe dans la Bible un psaume d'exaucement. **C'est le Psaume 20.**
+
+Lorsque vous arrivez à la fin de votre prière, avant de dire « Amen », récitez une fois le Psaume 20. Puis concluez en disant que vous scellez votre prière dans le sang de Jésus. **Le Psaume 20 vient souligner, dans le monde spirituel, tout ce que vous avez demandé.**
+
+Lisez-le, et vous verrez qu'il ne pouvait pas y avoir de meilleure manière de conclure : « Que l'Éternel t'exauce au jour de la détresse, que le nom du Dieu de Jacob te protège ! » (Psaume 20, verset 2). « Qu'il te donne ce que ton cœur désire, et qu'il accomplisse tous tes desseins ! » (Psaume 20, verset 5). « L'Éternel exaucera tous tes vœux » (Psaume 20, verset 6).
+
+> **Les Psaumes 22, 23 et 24 ouvrent la porte. Le Psaume 20 la referme sur votre exaucement.**
+
+## Les psaumes de chaque moment
+
+Chaque psaume appartient à un temps de la journée. Il y a des psaumes du matin, des psaumes de midi, des psaumes du soir et des psaumes de la nuit. Je ne peux pas vous donner ici la liste de tous les psaumes, mais je vous donne ceux que vous rencontrerez le plus souvent et qui vous serviront le plus.
+
+### À l'aube et le matin
+
+Pour l'aube et pour la matinée, de trois heures à midi, voici sept psaumes appropriés : **les Psaumes 1, 4, 17, 23, 24, 100 et 121.** Ce sont des psaumes avec lesquels vous pouvez commander votre journée avant qu'elle ne commence, la remettre entre les mains de Dieu et sortir de chez vous couvert.
+
+### À midi
+
+Lorsque le soleil est au plus haut, au milieu de la journée, utilisez **les Psaumes 51, 32 et 20.**
+
+### Au coucher du soleil
+
+Entre dix-sept heures trente et dix-huit heures, au moment où le soleil se couche, **un seul psaume est approprié : le Psaume 5.** C'est le psaume du passage du jour à la nuit.
+
+### Le soir et la nuit
+
+À partir de dix-huit heures et jusqu'au lever du jour, lorsque le soleil n'est plus là, vous pouvez utiliser **les Psaumes 2, 3, 7, 16, 23, 35, 54, 110 et 91.**
+
+Vous remarquerez que le Psaume 23 se trouve à la fois dans la liste du matin et dans celle de la nuit. Ce n'est pas une erreur. Ces deux moments ont un point commun : le soleil n'y est pas encore levé, ou il s'est déjà couché. Et c'est là tout le secret de ce chapitre.
+
+## Le soleil et les psaumes de combat
+
+Il y a une règle que très peu de croyants connaissent, et dont l'ignorance a causé bien des dégâts : **on ne pratique jamais un psaume de combat lorsque le soleil est levé.**
+
+Pourquoi ? Parce que les esprits et les énergies qui accompagnent les psaumes de combat sont des énergies de brisement et de destruction. Au contact du soleil, ces énergies reçoivent une puissance supplémentaire, une puissance excessive. Or l'excès, en toute chose, devient dangereux. **Un psaume de combat pratiqué en plein soleil frappe si fort qu'il peut briser, en même temps que les forces de l'ennemi, certaines portes de bonheur dans votre propre vie.** Prenez le Psaume 35 : c'est un psaume de combat. Pratiqué quand le soleil est haut, sa puissance de combat est telle qu'elle peut fermer devant vous des portes que Dieu voulait ouvrir.
+
+C'est pourquoi les psaumes de combat se pratiquent quand le soleil n'est pas là : le soir, la nuit, ou à l'aube avant qu'il ne se lève. Voici ceux que je considère comme les plus puissants pour le combat spirituel : **les Psaumes 2, 3, 4, 5, 7, 16, 23, 27 et 91.** Il en existe d'autres, mais ceux-là ont fait leurs preuves.
+
+Une autre règle accompagne la première : **quand vous avez fini un combat spirituel, faites aussitôt quelque chose qui attire le bonheur.** Le combat détruit, brise et arrache. C'est son rôle. Mais celui qui ne fait que combattre finit par ne vivre que dans le brisement. Après avoir arraché, il faut planter. Après avoir détruit les œuvres de l'ennemi, priez pour la bénédiction, la paix et la prospérité, ou récitez un psaume de louange. **Ne laissez jamais un champ de bataille sans y semer quelque chose.**
+
+> **Le combat arrache. La bénédiction replante. Celui qui arrache sans replanter finit sur une terre nue.**
+
+## Un psaume, plusieurs usages
+
+Je vous l'ai dit au chapitre précédent : un même psaume peut avoir plusieurs fonctions. Pensez à un couteau. On s'en sert pour couper la viande. Mais on peut aussi s'en servir pour dévisser une vis, ou pour aplatir quelque chose. C'est le même couteau. Ce qui change, c'est l'usage que vous en faites.
+
+Il en va de même des psaumes. Le Psaume 35 est un psaume de combat. Mais on peut aussi le réciter avant d'aller à la rencontre de quelqu'un, sans aucune intention de combat. Dans ce cas, vous ne le pratiquez pas comme une arme, et la règle du soleil ne s'applique pas de la même manière.
+
+Souvenez-vous donc de la distinction que nous avons faite au chapitre précédent. **Pour prier avec un psaume, toutes les heures sont bonnes. Pour pratiquer un psaume en vue d'un combat, respectez les heures.**
+
+---
+
+## Faites le point
+
+**Pour réfléchir**
+
+1. Relisez Daniel 6, verset 10. Qu'est-ce qui, dans l'attitude de Daniel, montre que sa prière était un rythme et non une simple réaction à la crise ?
+2. Pourquoi peut-on dire que, dans le calendrier de Dieu, la journée commence le soir ?
+3. Pourquoi un jeûne de six heures à dix-huit heures n'est-il pas un jour complet de jeûne ?
+4. Quels psaumes ouvrent la prière, et quel psaume la ferme ? Que dit chacun d'eux qui explique sa place ?
+5. Pourquoi ne faut-il jamais pratiquer un psaume de combat en plein soleil ? Que faut-il faire après un combat spirituel ?
+
+**Pour pratiquer**
+
+1. **Recopiez le découpage des heures** dans votre cahier : coucher du soleil, soir, nuit, aube, matinée, après-midi. Placez-le sur la première page, pour l'avoir toujours sous les yeux.
+2. **Ouvrez et fermez vos prières.** Pendant les sept prochains jours, commencez chaque temps de prière par un chant, puis par les Psaumes 22, 23 et 24, chacun précédé de trois « Jéhovah Saint ». Terminez par le Psaume 20 avant de dire « Amen ». Notez dans votre cahier ce qui change dans votre prière.
+3. **Établissez votre rythme.** Choisissez au moins deux moments fixes de prière dans la journée, par exemple l'aube et le soir. Pendant un mois, priez chaque jour à ces moments avec un des psaumes qui leur correspondent.
+4. **Recomptez vos jeûnes.** La prochaine fois que vous jeûnez, comptez vos jours de minuit à minuit.
+
+## Ce qu'il faut retenir
+
+- **Les grands hommes de prière connaissaient la valeur des heures**, comme Daniel qui priait trois fois le jour.
+- **Dans le calendrier de Dieu, le jour commence le soir** (Genèse 1, verset 5). Coucher du soleil : 17 h 30 à 18 h ; soir : 18 h à 22 h ; nuit : 22 h à 3 h, avec minuit pour cœur ; aube : 3 h à 6 h ; matinée : 6 h à midi.
+- **Un vrai jour de jeûne va de minuit à minuit.** De 6 h à 18 h, c'est un demi-jour.
+- **Pour ouvrir la prière** : chanter, puis réciter les Psaumes 22, 23 et 24, chacun précédé de trois « Jéhovah Saint ». **Pour la fermer** : réciter le Psaume 20 avant « Amen » et sceller dans le sang de Jésus.
+- **Aube et matin** : Psaumes 1, 4, 17, 23, 24, 100 et 121. **Midi** : Psaumes 51, 32 et 20. **Coucher du soleil** : Psaume 5. **Soir et nuit** : Psaumes 2, 3, 7, 16, 23, 35, 54, 110 et 91.
+- **Jamais de psaume de combat en plein soleil.** Après un combat, faites toujours quelque chose qui attire le bonheur.
+
+## Vers le chapitre 8
+
+Parmi tous les psaumes, il en est un qui occupe une place à part dans l'enseignement que je vous transmets. C'est le psaume par lequel on réclame la justice de Dieu contre ceux qui vous oppriment, celui par lequel on convoque une situation devant le tribunal du ciel. Il se pratique au cœur de la nuit, selon une méthode précise. Le chapitre suivant vous révèle **la convocation spirituelle par le Psaume 94.**

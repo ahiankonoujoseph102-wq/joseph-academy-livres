@@ -285,3 +285,27 @@
   Matthieu 27, 46 ; Luc 23, 46 ; Genèse 22, 14 ; Exode 15, 23-26 ;
   Exode 17, 15 ; Juges 6, 22-24 ; Proverbes 18, 10 ; Exode 3, 15 ;
   Ésaïe 6, 3.
+
+## 27 novembre 2026 — chapitre 6 VALIDÉ (« OK »)
+
+## 27 novembre 2026 — chapitre 7 rédigé, en attente de validation
+
+- « Prier avec les psaumes au fil du jour » (vidéos 06, 07).
+- **Listes de psaumes prises dans la vidéo 06, à faire confirmer par
+  l'auteur avant impression** (numéros issus de la reconnaissance
+  vocale) :
+  - aube et matin : 1, 4, 17, 23, 24, 100, 121 ;
+  - midi : 51, 32, 20 ; coucher du soleil : 5 ;
+  - soir et nuit : 2, 3, 7, 16, 23, 35, 54, 110, 91 ;
+  - combat : 2, 3, 4, 5, 7, 16, 23, 27, 91 (l'auteur cite le 7 deux
+    fois).
+  - **Contradiction non reprise :** une deuxième liste « du soir »
+    donnée aussitôt après (2, 3, 6, 16, 23, 24, 25, 21) diffère de la
+    première. Question pour l'auteur.
+- Laissés de côté : bains laissés trois heures au soleil ; prières
+  « 16 fois » liées aux quatre anges ; témoignage de l'enfance (psaume
+  utilisé sur une camarade de classe) ; le sel (annoncé, jamais donné).
+- Versets ajoutés, vérifiés en Louis Segond 1910 : Ecclésiaste 3, 1 ;
+  Daniel 6, 5-10 ; Psaume 55, 18 ; Marc 1, 35 ; Genèse 1, 5 ;
+  Psaume 100, 4 ; Psaume 22, 4 ; Psaume 23, 3 ; Psaume 24, 7 ;
+  Psaume 20, 2, 5 et 6.
