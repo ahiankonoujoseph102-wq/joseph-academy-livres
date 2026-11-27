@@ -442,3 +442,28 @@
   Deutéronome 7, 26 ; Actes 19, 19 ; 1 Samuel 16, 13 ; Marc 6, 13 ;
   Psaume 4, 9. Nouvelle section finale « Revenir en paix ».
 - Fin de la réécriture des chapitres 1 à 9. Restent à écrire : 10, 11, 12.
+
+## 27 novembre 2026 — chapitre 9 réécrit VALIDÉ (« OK »)
+
+## 27 novembre 2026 — chapitre 10 rédigé (en attente de validation)
+
+- « Les psaumes de la vie de tous les jours », ajouté à manuscrit/partie-3.md
+  (environ 5 600 mots). Sources : transcriptions 06 (Psaume 91, guérison),
+  07, 13 (Psaumes 1 et 14).
+- Versets vérifiés en Louis Segond 1910 : Psaume 90, 1 et 17 ; 72, 10 et 15 ;
+  35, 1 ; 100, 2 ; 82, 1 ; 141, 8-9 ; 45, 1 ; 46, 2 ; 91, 3, 5-6 ; 1, 3 ;
+  127, 3 ; 51, 1-4 et 12 ; Genèse 37, 2 et 5 ; 39, 1-3 ; 2, 24 ; 21, 1 ;
+  25, 21 et 24 ; Néhémie 1, 11 ; 2, 2-8 ; Deutéronome 8, 18 ; Luc 10, 5 ;
+  Josué 24, 15 ; Job 33, 14-16 ; 1 Samuel 16, 6-7 ; 1, 10 ; Matthieu 7, 15-16 ;
+  2 Timothée 1, 7 ; Ecclésiaste 4, 12 ; Exode 15, 26 ; Ésaïe 53, 5 ;
+  Jacques 5, 14-15 ; 2 Samuel 12, 9 et 13 ; Malachie 3, 10.
+- Retiré : Psaume « Saint-Dix » contre un adversaire (prière de mort),
+  agriculture (numéro perdu), placenta, version du couple avec le sable de
+  l'ombre (pratique de type magique). Saints noms en hébreu non cités.
+- Ajouts à signaler : « Prier pour sa guérison n'a jamais interdit de se
+  soigner » ; la mise en garde du Psaume 82 (demander la vérité, pas la
+  confirmation de ses soupçons) ; « cette pratique se fait à deux » (couple).
+- Question pour l'auteur : Psaume 1, que fait la femme de l'eau (boire,
+  se laver) ? La source ne le dit pas.
+- Point à trancher : le parchemin du Psaume 72 est gardé, avec la mise en
+  garde « ce n'est pas l'eau qui enrichit, c'est Dieu ».

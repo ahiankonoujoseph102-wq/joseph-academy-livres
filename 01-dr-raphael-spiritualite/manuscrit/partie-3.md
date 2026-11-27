@@ -694,3 +694,214 @@ Puis endormez-vous avec la confiance de David : « Je me couche et je m'endors e
 ## Vers le chapitre 10
 
 Vous savez maintenant comment vous couvrir et comment couvrir votre maison. Mais les psaumes ne servent pas seulement au combat et à la protection. Ils accompagnent aussi la vie de tous les jours : le commerce qui ne marche pas, l'argent qui ne vient pas, le sommeil sans révélation, la peur qui paralyse, le couple qui s'éloigne, la maladie qui s'installe. Le chapitre suivant vous fait découvrir **les psaumes de la vie de tous les jours.**
+
+---
+
+# Chapitre 10 — Les psaumes de la vie de tous les jours
+
+> « Que la grâce de l'Éternel, notre Dieu, soit sur nous ! Affermis l'ouvrage de nos mains, oui, affermis l'ouvrage de nos mains ! »
+> **Psaume 90, verset 17**
+
+## Un esclave dont les mains prospéraient
+
+Joseph avait dix-sept ans lorsque ses propres frères le vendirent. Il fut emmené en Égypte et acheté comme esclave par Potiphar, un officier de Pharaon. Il avait tout perdu : sa famille, son pays, sa liberté. Il n'avait ni capital, ni relations, ni droits. Et pourtant, l'Écriture dit de lui : « L'Éternel fut avec lui, et la prospérité l'accompagna ; il habitait dans la maison de son maître, l'Égyptien. Son maître vit que l'Éternel était avec lui, et que l'Éternel faisait prospérer entre ses mains tout ce qu'il entreprenait » (Genèse 39, versets 2 et 3).
+
+Remarquez ces mots : **« entre ses mains ».** Dieu ne fit pas tomber de l'or du ciel dans la maison de Potiphar. Joseph travaillait. Il gérait, il organisait, il servait. Mais sur le travail de ses mains reposait quelque chose que les autres serviteurs n'avaient pas : la main de Dieu. Ce que Joseph touchait réussissait. Et son maître païen lui-même fut obligé de le reconnaître.
+
+Ce n'est pas un hasard si la prière que nous allons étudier en premier vient de Moïse. Le Psaume 90 porte ce titre : « Prière de Moïse, homme de Dieu » (Psaume 90, verset 1). L'homme qui avait conduit tout un peuple à travers le désert savait que Dieu ne s'intéresse pas seulement aux grandes batailles spirituelles, mais aussi au travail de chaque jour. Et il termine son psaume par cette demande : « Affermis l'ouvrage de nos mains. »
+
+Jusqu'ici, nous avons vu les psaumes du combat, de la justice et de la protection. Ce chapitre vous ouvre une autre porte : **celle des psaumes de la vie de tous les jours.** Le commerce qui ne décolle pas, le rendez-vous qui peut tout changer, la maison que l'on vient de louer, l'argent qui ne vient pas, les nuits sans révélation, la personne dont on ignore le vrai visage, la peur qui paralyse, le couple qui s'éloigne, la maladie qui s'installe, le ventre qui ne porte pas, la faute qui pèse sur la conscience. **Pour chacune de ces situations, Dieu a placé une clé dans le livre des Psaumes.**
+
+## Avant d'ouvrir ce coffre
+
+Avant de vous donner ces clés, je dois vous mettre en garde. C'est pour cette raison que beaucoup de serviteurs de Dieu hésitent à enseigner ces choses. **Le danger, c'est que le croyant mette toute sa foi dans la connaissance et oublie celui qui donne la puissance.** Il connaît le psaume, il connaît l'heure, il connaît le geste, et il cesse de prier. Il cesse de chercher la face de Dieu. Il mène une vie d'impudicité et s'étonne que rien ne se produise.
+
+Écoutez bien ceci : **ce que je vous enseigne dans ce chapitre ne marchera pas si vous n'avez pas de relation avec Dieu.** Ce n'est pas le psaume qui agit seul. Ce n'est pas l'eau. Ce n'est pas le geste. C'est Dieu qui donne la puissance à tout cela. Tout ce que vous allez faire, vous le ferez **au nom de Jésus**, dans une vie de prière et de sainteté.
+
+Pensez à une clé de voiture. Elle est indispensable pour démarrer. Mais si le réservoir est vide, vous pouvez tourner la clé autant de fois que vous voulez : la voiture ne partira pas. **Le psaume est la clé. La relation avec Dieu est le carburant.** L'un ne remplace pas l'autre.
+
+> **Celui qui connaît le secret mais ne prie plus a gardé la clé et perdu le moteur.**
+
+## Ouvrir sa boutique sous la grâce
+
+Commençons par la clé de Moïse. Vous avez une boutique, un magasin, une entreprise, et les affaires ne prospèrent pas. Les clients passent devant votre porte sans entrer. Votre voisin, qui vend la même chose que vous, a du monde toute la journée. Vous avez tout essayé : baisser les prix, changer la vitrine, faire de la publicité. Rien ne change.
+
+Voici ce que vous allez faire. **Chaque matin, avant d'ouvrir, tenez dans votre main la poignée de la porte** : la poignée, le cadenas, ce que vous touchez pour ouvrir votre boutique ou votre bureau. Et en tenant cette poignée, prononcez le Psaume 90, verset 17, en le mettant à la première personne : **« Que la grâce de l'Éternel, notre Dieu, soit sur moi ! Affermis l'ouvrage de mes mains, oui, affermis l'ouvrage de mes mains ! »**
+
+Dites-le **trois fois ou sept fois.** Puis ouvrez votre boutique.
+
+Ce geste paraît simple. Mais regardez ce qu'il fait. Avant que le premier client n'entre, avant que la première marchandise ne soit vendue, vous avez placé votre journée de travail sous la grâce de Dieu. **Vous ne commencez plus votre journée par vos propres forces, mais par sa faveur.** Et ce que vous demandez, c'est exactement ce que Dieu faisait pour Joseph : que tout ce que vos mains touchent prospère.
+
+Ne croyez pas pour autant que ce verset vous dispense de travailler. Le psaume ne dit pas : « Fais l'ouvrage à ma place. » Il dit : « Affermis l'ouvrage de nos mains. » **Il faut qu'il y ait un ouvrage pour que Dieu l'affermisse.** Accueillez bien vos clients. Soyez honnête dans vos prix. Tenez vos comptes. Et la grâce que vous avez appelée le matin reposera sur ce que vous faites tout le jour. « Souviens-toi de l'Éternel, ton Dieu, car c'est lui qui te donnera de la force pour les acquérir » (Deutéronome 8, verset 18).
+
+## Avant un rendez-vous qui peut tout changer
+
+Ce même verset vous accompagne bien au-delà de la porte de votre boutique. Il est fait pour tous les moments où votre avenir dépend du regard et de la décision d'un autre.
+
+Néhémie était échanson du roi, c'est-à-dire celui qui lui servait à boire. Un jour, le roi remarqua sa tristesse et lui demanda ce qu'il voulait. Néhémie fut « saisi d'une grande crainte » (Néhémie 2, verset 2) : de sa réponse dépendait le sort de Jérusalem, la ville de ses pères, dont les portes avaient été consumées par le feu. Alors, avant de parler, il fit une chose que l'Écriture prend soin de noter : « Je priai le Dieu des cieux, et je répondis au roi » (Néhémie 2, versets 4 et 5). Une prière silencieuse, au milieu de l'audience, entre la question et la réponse. Et le roi lui accorda tout ce qu'il demandait : la permission de partir, des lettres pour les gouverneurs, du bois pour rebâtir les portes de Jérusalem. Néhémie conclut : **« Le roi me donna ces lettres, car la bonne main de mon Dieu était sur moi »** (Néhémie 2, verset 8).
+
+Vous aussi, vous aurez des rendez-vous de ce genre. Un entretien d'embauche. Une négociation pour un marché. La rencontre d'un homme d'affaires pour un projet qui peut vous apporter beaucoup d'argent. Une audience auprès d'une autorité, d'un directeur ou même d'un ministre.
+
+**Avant d'entrer, récitez le Psaume 90, verset 17, dans votre esprit.** Si la personne vous reçoit dans un bureau, faites-le dans la salle d'attente. Si vous la rencontrez ailleurs, faites-le avant de la saluer. Personne n'a besoin de vous entendre. Dites : « Que la grâce de l'Éternel, notre Dieu, soit sur moi ! Affermis l'ouvrage de mes mains. » Vous pouvez le dire **une fois, trois fois, sept fois ou vingt et une fois, ou autant de fois que votre âge.**
+
+Quand vous entrez dans ce bureau, vous n'êtes plus seul. **Vous entrez avec la grâce que vous avez appelée.** C'est elle qui ouvre les cœurs, qui adoucit les décisions et qui fait dire à un homme ce qu'il n'avait pas prévu de dire. Néhémie avait la bonne main de son Dieu sur lui. Vous pouvez l'avoir aussi.
+
+## Consacrer la maison ou la boutique que l'on vient de louer
+
+Passons maintenant de la porte au lieu tout entier. Vous venez de louer une maison, un appartement ou une boutique. Vous y apportez vos meubles, vos marchandises, votre famille. Mais vous ne savez pas qui a vécu là avant vous, ni ce qui s'y est fait. Nous l'avons vu dans la première partie de ce livre : **le croyant ne doit pas laisser sa maison sans gouvernement.** Celui qui s'installe dans un lieu sans le consacrer y vit sous ce qui s'y trouvait déjà.
+
+Jésus lui-même a donné cette consigne à ses disciples : « Dans quelque maison que vous entriez, dites d'abord : Que la paix soit sur cette maison ! » (Luc 10, verset 5). **D'abord.** Avant de s'asseoir, avant de manger, avant de parler d'autre chose. Et Josué, devant tout le peuple, déclara : « Moi et ma maison, nous servirons l'Éternel » (Josué 24, verset 15). Une maison se déclare. Elle se consacre.
+
+Voici comment faire. Prenez de l'eau et versez-la dans **un récipient blanc.** Activez cette eau et présentez-vous à elle, comme vous l'avez appris au chapitre 5. Puis récitez sur cette eau **le Psaume 35 et le Psaume 100.** Enfin, aspergez avec cette eau la maison ou la boutique que vous voulez consacrer : les pièces, les coins, l'entrée.
+
+Les deux psaumes ne sont pas choisis au hasard. Le Psaume 35 est un psaume de combat : « Éternel ! défends-moi contre mes adversaires, combats ceux qui me combattent ! » (Psaume 35, verset 1). Il chasse ce qui n'a rien à faire dans ce lieu. Le Psaume 100 est un psaume de louange : « Servez l'Éternel, avec joie, venez avec allégresse en sa présence ! » (Psaume 100, verset 2). Il installe la présence de Dieu à la place de ce qui a été chassé. **On vide la maison, puis on la remplit.** Une maison chassée mais laissée vide est une maison qui attend de nouveaux occupants.
+
+Souvenez-vous seulement de la règle du chapitre 7 : **le Psaume 35 est un psaume de combat, et il ne se pratique pas en plein soleil.** Faites cette consécration le matin de bonne heure ou le soir.
+
+## L'argent qui coule vers vous : le Psaume 72
+
+Nous avons déjà rencontré le Psaume 72 au chapitre 6. C'est le psaume du roi, celui où l'on lit que « les rois de Séba et de Saba offriront des présents » et que l'on donnera au roi « de l'or de Séba » (Psaume 72, versets 10 et 15). C'est un psaume de richesse et d'abondance, et c'est pourquoi on l'utilise pour le domaine financier.
+
+Voici la pratique que l'on fait avec ce psaume pour attirer l'argent. Procurez-vous **un parchemin.** Le parchemin est un support d'écriture très ancien. Avant le papier, on écrivait sur la pierre, comme les tables de la loi que Moïse reçut sur la montagne, puis on écrivit sur le parchemin. Sur ce parchemin, **recopiez vous-même le Psaume 72 en entier.**
+
+Ensuite, remplissez une bouteille d'**eau de source.** J'insiste : de l'eau de source, c'est-à-dire de l'eau qui sort de la terre ou qui coule de la montagne. Pas de l'eau du robinet. Pas de l'eau de mer. Plongez le parchemin dans la bouteille, et laissez-le s'imbiber de cette eau.
+
+Puis priez sur cette bouteille. Dites par exemple : **« Seigneur, de la même manière que cette eau sort de la source de façon mystérieuse et ne cesse de couler, je déclare que l'argent coule vers moi. Toi à qui appartiennent l'or et l'argent, je déclare que la prospérité financière vient à ma rencontre. Que l'argent me cherche. Au nom de Jésus. »** Priez selon votre situation, selon ce dont vous avez besoin.
+
+Lorsque cette eau est préparée, chaque fois que vous allez vous laver, versez-en un peu dans votre eau de bain, et lavez-vous avec. Peu à peu, vos finances commencent à se débloquer. Les portes qui étaient fermées s'ouvrent. Les gens commencent à vous faire du bien.
+
+Mais gravez bien ceci dans votre esprit : **ce n'est pas la bouteille qui vous donne l'argent. Ce n'est pas le parchemin. Ce n'est pas l'eau. Ce n'est même pas le psaume tout seul.** C'est Dieu, que vous invoquez au nom de Jésus, et qui se sert de tout cela comme d'un point de contact pour votre foi. Le jour où vous croirez que la bouteille vous enrichit, vous aurez fait de l'eau une idole.
+
+> **L'eau de source coule sans qu'on la pousse. Demandez à Dieu que sa provision coule ainsi dans votre vie.**
+
+## Les nuits qui parlent : le Psaume 41
+
+L'argent n'est pas le seul besoin du croyant. Il a aussi besoin de lumière pour savoir où il marche. Et Dieu donne souvent cette lumière pendant la nuit.
+
+Dieu a toujours parlé par les rêves. « Joseph eut un songe », dit l'Écriture (Genèse 37, verset 5), et ce songe annonçait tout son avenir. Le livre de Job l'explique clairement : « Dieu parle cependant, tantôt d'une manière, tantôt d'une autre, et l'on n'y prend point garde. Il parle par des songes, par des visions nocturnes, quand les hommes sont livrés à un profond sommeil, quand ils sont endormis sur leur couche. Alors il leur donne des avertissements et met le sceau à ses instructions » (Job 33, versets 14 à 16).
+
+Beaucoup de croyants dorment toute leur vie sans jamais rien recevoir. Ou bien ils font des rêves confus, qu'ils oublient au réveil. **Pour disposer votre esprit à recevoir les révélations de Dieu pendant la nuit, il y a le Psaume 41.**
+
+Le soir, avant d'aller au lit, **lavez-vous soigneusement.** Soyez propre, sans mauvaise odeur. Ce n'est pas un détail : on ne se présente pas devant Dieu n'importe comment. Puis **récitez le Psaume 41.** Pour plus d'efficacité, récitez-le **autant de fois que votre âge.** Si vous avez trente ans, vous le récitez trente fois.
+
+Enfin, couchez-vous **sur le dos, le visage tourné vers le ciel.** Pendant votre sommeil, votre corps bougera, et vous ne contrôlerez pas votre position. Mais au moment de vous endormir, tant que vous êtes conscient, couchez-vous ainsi, face au ciel, dans une attitude d'attente devant Dieu.
+
+Une chose importante, pour que vous ne soyez pas déçu : **ce n'est pas vous qui décidez de ce que vous allez voir.** Ce psaume ne vous donne pas le pouvoir de commander une vision. C'est Dieu qui montre ce qu'il veut, quand il veut et comme il veut. Ce que fait le Psaume 41, c'est disposer votre esprit à recevoir ce que l'Esprit de Dieu voudra vous transmettre. Il ouvre la fenêtre. C'est Dieu qui décide de ce qui entre.
+
+Le Psaume 41 peut aussi se réciter le matin, autant de fois que votre âge, avant de sortir de la maison.
+
+## Voir le vrai visage d'une personne : le Psaume 82
+
+Il y a une autre lumière dont le croyant a besoin : celle qui lui fait voir clair dans les personnes. Vous avez rencontré quelqu'un. Un associé qui vous propose une affaire. Un homme ou une femme qui veut entrer dans votre vie. Une personne qui se dit votre amie. Tout paraît bien. Mais quelque chose, en vous, n'est pas en paix.
+
+Les yeux humains sont faciles à tromper. Même le prophète Samuel s'y laissa prendre. Lorsqu'il vit Éliab, le fils aîné d'Isaï, grand et beau, il se dit que c'était lui que Dieu avait choisi pour être roi. Mais l'Éternel lui dit : « Ne prends point garde à son apparence et à la hauteur de sa taille, car je l'ai rejeté. L'Éternel ne considère pas ce que l'homme considère ; l'homme regarde à ce qui frappe les yeux, mais l'Éternel regarde au cœur » (1 Samuel 16, verset 7). Et Jésus nous a avertis : « Gardez-vous des faux prophètes. Ils viennent à vous en vêtements de brebis, mais au dedans ce sont des loups ravisseurs. Vous les reconnaîtrez à leurs fruits » (Matthieu 7, versets 15 et 16).
+
+**Pour demander à Dieu de vous révéler le vrai visage d'une personne, il y a le Psaume 82.** Ce psaume s'ouvre sur une scène de jugement : « Dieu se tient dans l'assemblée de Dieu ; il juge au milieu des dieux » (Psaume 82, verset 1). C'est le psaume du Dieu qui voit au travers de tout et devant qui rien n'est caché.
+
+Voici comment le pratiquer. **Chaque soir, à 21 heures**, après votre prière, récitez le Psaume 82, une fois ou trois fois. Quand vous avez terminé, **prononcez le nom de la personne**, et demandez à Dieu de vous montrer son vrai visage. Faites cela **pendant quatorze soirs de suite**, sans en manquer un seul. Ni plus, ni moins.
+
+Dieu vous montrera alors la vérité sur cette personne. Parfois dans un rêve. Parfois dans son comportement, qui finira par se révéler. Parfois dans un fait qui viendra à la lumière. **Même si elle vous cache quelque chose, ce qui était caché finira par apparaître.**
+
+Mais soyez honnête dans votre demande. Ne demandez pas à Dieu de confirmer vos soupçons. Demandez-lui la vérité, quelle qu'elle soit. Il se peut qu'il vous montre que la personne dont vous vous méfiez est sincère, et que c'est vous qui vous trompiez. **Celui qui cherche la vérité doit être prêt à l'accepter, même quand elle lui donne tort.**
+
+## Chasser l'esprit de peur : le Psaume 141
+
+Voir clair ne suffit pas toujours. Il y a des croyants qui savent exactement ce qu'ils doivent faire, mais qui ne le font pas, parce qu'ils ont peur. Peur de sortir la nuit. Peur d'une personne. Peur de l'avenir. Peur de prier contre les ténèbres. Peur même de pratiquer ce qu'ils apprennent dans ce livre.
+
+La peur n'est pas seulement un sentiment. **C'est souvent un esprit.** Paul l'écrit à Timothée : « Car ce n'est pas un esprit de timidité que Dieu nous a donné, mais un esprit de force, d'amour et de sagesse » (2 Timothée 1, verset 7). Si ce n'est pas Dieu qui vous a donné cet esprit de peur, alors il ne vient pas de Dieu, et vous avez le droit de le chasser.
+
+**Pour chasser l'esprit de peur, prenez l'habitude de réciter le Psaume 141.** Attention : le Psaume 141, et non le Psaume 41. Les deux numéros se ressemblent, mais ce ne sont pas les mêmes psaumes ni les mêmes usages. Récitez-le régulièrement, et non seulement quand la peur vous saisit. C'est un psaume du croyant qui se réfugie en Dieu : « C'est vers toi, Éternel, Seigneur ! que se tournent mes yeux, c'est auprès de toi que je cherche un refuge : n'abandonne pas mon âme ! Garantis-moi du piège qu'ils me tendent » (Psaume 141, versets 8 et 9).
+
+À force de le réciter, l'esprit de peur perd sa place. **Vous n'aurez plus peur comme avant, et Dieu vous donnera la force et le courage en toute chose.**
+
+> **La peur crie plus fort que l'ennemi. Faites taire la peur, et vous découvrirez que l'ennemi était plus petit que vous ne le pensiez.**
+
+## Le couple : les Psaumes 45 et 46
+
+Du combat intérieur, passons au foyer. Le couple est le premier lieu que Dieu a institué sur la terre. Avant l'Église, avant la nation, il y eut un homme et une femme : « C'est pourquoi l'homme quittera son père et sa mère, et s'attachera à sa femme, et ils deviendront une seule chair » (Genèse 2, verset 24). Et parce que le couple est la première œuvre de Dieu, il est aussi l'une des premières cibles de l'ennemi.
+
+L'Ecclésiaste dit : « La corde à trois fils ne se rompt pas facilement » (Ecclésiaste 4, verset 12). Un mari, une femme, et Dieu au milieu d'eux. Quand Dieu est le troisième fil, la corde tient.
+
+Pour la paix et l'amour dans le couple, il y a **les Psaumes 45 et 46.** Le Psaume 45 porte ce titre : « Chant d'amour » (Psaume 45, verset 1). Le Psaume 46 déclare : « Dieu est pour nous un refuge et un appui, un secours qui ne manque jamais dans la détresse » (Psaume 46, verset 2). L'amour et le refuge : voilà ce dont un couple a besoin.
+
+Voici la pratique. Prenez **du miel**, dans une bouteille ou un pot. Le mari et la femme tiennent ensemble ce récipient. Récitez sur ce miel les Psaumes 45 et 46. Puis priez ensemble : **« Seigneur, unis-nous. Bénis ce couple. Que la douceur de ce miel coule dans notre couple. Que nous nous comprenions. Que ta paix et ton amour demeurent entre nous. »** Faites vos vœux devant Dieu. Puis **partagez ce miel tous les deux.**
+
+Le miel est l'image de la douceur. Mais retenez bien ceci : **cette pratique se fait à deux, dans l'accord des deux.** Elle n'est pas faite pour attacher quelqu'un contre sa volonté. Elle est faite pour un couple qui veut, ensemble, inviter Dieu au milieu de lui. Prier pour son couple, c'est bien. Prier avec son conjoint, c'est encore mieux.
+
+## La maladie : le Psaume 91 sur l'eau
+
+Le couple a besoin de paix. Le corps, lui, a besoin de santé. Et Dieu s'est présenté à son peuple sous ce nom : « Je suis l'Éternel, qui te guérit » (Exode 15, verset 26). Le prophète Ésaïe a annoncé ce que le Christ accomplirait pour nous : « C'est par ses meurtrissures que nous sommes guéris » (Ésaïe 53, verset 5). **La guérison n'est pas une faveur rare que Dieu accorde à quelques privilégiés. Elle fait partie de l'œuvre de la croix.**
+
+Nous avons étudié le Psaume 91 au chapitre précédent comme le psaume de l'abri. Mais il est aussi un psaume de guérison : « Car c'est lui qui te délivre du filet de l'oiseleur, de la peste et de ses ravages » (Psaume 91, verset 3). « Tu ne craindras ni les terreurs de la nuit, ni la flèche qui vole de jour, ni la peste qui marche dans les ténèbres, ni la contagion qui frappe en plein midi » (Psaume 91, versets 5 et 6).
+
+Voici comment prier pour une guérison, pour vous-même ou pour un malade. **Entre 3 heures et 5 heures 30 du matin, avant le lever du soleil**, prenez un verre d'eau. Mettez-y la quantité d'eau que le malade peut boire en une fois. **Levez ce verre vers le ciel**, comme on élève une coupe devant Dieu. Et **récitez sur cette eau le Psaume 91 en entier**, du premier au dernier verset.
+
+Puis invoquez le sang de Jésus. Demandez que cette eau devienne le sang de Jésus, et que, lorsqu'elle sera bue, la puissance de sa main descende dans le corps et chasse la maladie. Dites par exemple : **« Seigneur, passe par cette eau pour guérir. Que cette eau devienne le sang de Jésus. Qu'elle coule dans mes veines et que la maladie s'en aille. »** Priez sérieusement, avec foi, sans vous presser.
+
+Enfin, **buvez cette eau à jeun**, ou donnez-la au malade pour qu'il la boive à jeun. Par la puissance de Dieu, la personne sera guérie.
+
+L'apôtre Jacques nous rappelle que cette prière est à la portée de l'Église : « Quelqu'un parmi vous est-il malade ? Qu'il appelle les anciens de l'Église, et que les anciens prient pour lui, en l'oignant d'huile au nom du Seigneur ; la prière de la foi sauvera le malade, et le Seigneur le relèvera » (Jacques 5, versets 14 et 15). Dieu agit par l'huile, par l'eau, par la main posée. Il agit aussi par le médecin qu'il met sur votre chemin. **Prier pour sa guérison n'a jamais interdit de se soigner.** Ce qui guérit, en dernier ressort, c'est toujours Dieu.
+
+## Le don de la vie : les Psaumes 1 et 14
+
+Il y a une souffrance que beaucoup de femmes portent en silence : celle du ventre qui ne porte pas, ou de la grossesse qui fait peur. La Bible est pleine de femmes qui ont connu cette attente. Sara attendit jusqu'à sa vieillesse, et « l'Éternel accomplit pour Sara ce qu'il avait promis » (Genèse 21, verset 1). Anne, « l'amertume dans l'âme, pria l'Éternel et versa des pleurs » (1 Samuel 1, verset 10), et elle enfanta Samuel. Et de Rebecca, il est écrit : « Isaac implora l'Éternel pour sa femme, car elle était stérile, et l'Éternel l'exauça : Rebecca, sa femme, devint enceinte. » Et quand vint le temps d'accoucher, « voici, il y avait deux jumeaux dans son ventre » (Genèse 25, versets 21 et 24).
+
+« Voici, des fils sont un héritage de l'Éternel, le fruit des entrailles est une récompense » (Psaume 127, verset 3). **Les enfants se demandent à Dieu.**
+
+**Pour une femme qui désire avoir des enfants, il y a le Psaume 14.** Ce psaume a plusieurs usages, et parmi eux, celui de permettre à une femme stérile de concevoir, et même d'avoir des jumeaux. Souvenez-vous du principe que nous avons vu au chapitre 6 : avant de pratiquer un psaume, on invoque Dieu sous le nom qui correspond à ce que l'on attend de lui. **Pour le Psaume 14, on invoque Dieu comme le Dieu miséricordieux.** La femme, ou le couple, dit : « Dieu miséricordieux, accorde-moi des enfants. » Puis elle récite le psaume et présente sa demande.
+
+**Pour une femme qui va accoucher, il y a le Psaume 1.** Il dit de l'homme qui aime la parole de Dieu : « Il est comme un arbre planté près d'un courant d'eau, qui donne son fruit en sa saison » (Psaume 1, verset 3). Le fruit en sa saison : c'est la naissance qui arrive au bon moment, sans retard et sans drame. La femme prend une bouteille d'eau minérale. Avant de pratiquer le psaume sur cette eau, elle invoque trois fois Dieu comme **le Dieu créateur**, celui qui donne la vie, afin qu'il l'aide à mettre au monde sa créature. Puis elle récite le Psaume 1 sur cette eau.
+
+## Effacer une faute : le Psaume 51
+
+Il reste une dernière situation, et c'est peut-être la plus lourde de toutes. Ce n'est pas un manque d'argent, ni une maladie, ni un ennemi. C'est une faute que vous avez commise, et qui pèse sur votre conscience.
+
+Le roi David connut ce poids. Il avait pris Bath-Schéba, la femme d'un autre, et fait mourir son mari. Il crut que tout était caché. Mais Dieu envoya le prophète Nathan, qui le confronta. Alors David ne chercha pas d'excuse. Il dit : « J'ai péché contre l'Éternel ! » Et Nathan lui répondit : « L'Éternel pardonne ton péché, tu ne mourras point » (2 Samuel 12, verset 13).
+
+C'est de cette nuit-là qu'est né le Psaume 51. Son titre le dit : « Psaume de David. Lorsque Nathan, le prophète, vint à lui, après que David fut allé vers Bath-Schéba » (Psaume 51, versets 1 et 2). C'est le grand psaume de la repentance : « Ô Dieu ! aie pitié de moi dans ta bonté ; selon ta grande miséricorde, efface mes transgressions ; lave-moi complètement de mon iniquité, et purifie-moi de mon péché » (Psaume 51, versets 3 et 4). « Ô Dieu ! crée en moi un cœur pur, renouvelle en moi un esprit bien disposé » (Psaume 51, verset 12).
+
+Vous vous souvenez de la règle du chapitre 6 : **pour qu'un psaume agisse pleinement, on le récite autant de fois que son numéro.** Celui qui veut effacer une faute récite donc **le Psaume 51 cinquante et une fois.** Prenez pour cela un temps de calme, loin du bruit. Ce n'est pas une course. À chaque récitation, laissez les mots de David devenir les vôtres.
+
+Mais n'oubliez jamais que **le nombre ne remplace pas la repentance.** David ne fut pas pardonné parce qu'il avait récité un texte, mais parce qu'il avait dit, du fond du cœur : « J'ai péché. » Récitez cinquante et une fois, oui. Mais confessez d'abord votre faute, réparez ce qui peut être réparé, et abandonnez ce chemin. **Le psaume porte votre repentance jusqu'à Dieu. Il ne la fabrique pas à votre place.**
+
+> **Le Psaume 51 n'efface pas la faute de celui qui veut la garder. Il lave celui qui veut en sortir.**
+
+## Faites le point
+
+**Pour comprendre**
+
+1. Relisez Genèse 39, versets 2 et 3. Pourquoi l'Écriture précise-t-elle que Dieu faisait prospérer ce que Joseph entreprenait « entre ses mains » ? Qu'est-ce que cela vous apprend sur le rapport entre la grâce de Dieu et votre travail ?
+2. Pourquoi les psaumes de ce chapitre ne marchent-ils pas chez celui qui n'a pas de relation avec Dieu ? Expliquez l'image de la clé et du carburant.
+3. Que fit Néhémie entre la question du roi et sa réponse (Néhémie 2, versets 4 et 5) ? Comment pouvez-vous l'imiter avant un rendez-vous important ?
+4. Pourquoi consacre-t-on une maison avec deux psaumes, le Psaume 35 et le Psaume 100, et non avec un seul ?
+5. Dans la pratique du Psaume 72, qu'est-ce qui attire réellement l'argent : la bouteille, l'eau, le parchemin ou autre chose ? Pourquoi cette question est-elle si importante ?
+6. Que vous apprend l'histoire de Samuel devant Éliab (1 Samuel 16, verset 7) sur la manière de pratiquer le Psaume 82 ?
+7. Pourquoi David a-t-il été pardonné (2 Samuel 12, verset 13) ? Quelle est la place du nombre de récitations dans la pratique du Psaume 51 ?
+
+**Pour pratiquer**
+
+1. **Ouvrez votre lieu de travail sous la grâce.** Pendant vingt et un jours, chaque matin, tenez la poignée de votre porte et dites trois ou sept fois le Psaume 90, verset 17, à la première personne. Notez dans votre cahier ce qui change.
+2. **Préparez votre prochain rendez-vous.** Avant votre prochain entretien ou votre prochaine négociation, récitez le Psaume 90, verset 17, dans la salle d'attente, le nombre de fois que vous aurez choisi.
+3. **Disposez vos nuits.** Pendant sept soirs, lavez-vous, récitez le Psaume 41 autant de fois que votre âge, et couchez-vous sur le dos, face au ciel. Gardez un cahier près de votre lit et notez vos rêves dès le réveil.
+4. **Faites du Psaume 141 une habitude.** Si la peur vous paralyse dans un domaine précis, récitez-le chaque jour pendant un mois.
+5. **Priez avec votre conjoint.** Si vous êtes marié, proposez à votre conjoint la prière du miel avec les Psaumes 45 et 46, dans l'accord de vous deux.
+6. **Faites le point sur votre conscience.** S'il y a une faute que vous n'avez jamais confessée, prenez un jour de calme, confessez-la à Dieu, puis récitez le Psaume 51 cinquante et une fois.
+
+## Ce qu'il faut retenir
+
+- **Dieu s'intéresse à la vie de tous les jours** : la boutique, l'argent, le sommeil, le couple, la santé, les enfants.
+- **Ces pratiques ne marchent pas sans relation avec Dieu.** Le psaume est la clé, la relation avec Dieu est le carburant. Tout se fait au nom de Jésus.
+- **Le Psaume 90, verset 17** : chaque matin, la main sur la poignée de la boutique, trois ou sept fois. Avant un rendez-vous important, dans son esprit : une, trois, sept ou vingt et une fois, ou autant de fois que son âge.
+- **Les Psaumes 35 et 100** consacrent une maison ou une boutique louée : eau dans un récipient blanc, activée, psaumes récités, eau aspergée. Pas en plein soleil.
+- **Le Psaume 72** attire l'argent : le psaume recopié sur un parchemin, plongé dans de l'eau de source, prière, un peu de cette eau dans chaque bain. **Ce n'est pas l'eau qui enrichit, c'est Dieu.**
+- **Le Psaume 41** dispose aux rêves de révélation : se laver, le réciter autant de fois que son âge, dormir sur le dos, face au ciel. **C'est Dieu qui choisit ce qu'il montre.**
+- **Le Psaume 82** révèle le vrai visage d'une personne : à 21 heures, une ou trois fois, puis son nom, pendant quatorze soirs de suite.
+- **Le Psaume 141** chasse l'esprit de peur. Le 141, pas le 41.
+- **Les Psaumes 45 et 46**, sur du miel tenu et partagé à deux, pour la paix et l'amour dans le couple.
+- **Le Psaume 91** guérit : un verre d'eau levé vers le ciel entre 3 heures et 5 heures 30, le psaume en entier, l'eau devenue le sang de Jésus, bue à jeun.
+- **Le Psaume 14** pour avoir des enfants, en invoquant le Dieu miséricordieux. **Le Psaume 1** pour accoucher, sur de l'eau, en invoquant le Dieu créateur.
+- **Le Psaume 51**, cinquante et une fois, efface une faute. **Mais le nombre ne remplace pas la repentance.**
+
+## Vers la quatrième partie
+
+Vous avez maintenant entre les mains les clés des psaumes : pour combattre, pour réclamer justice, pour vous protéger et pour traverser la vie de tous les jours. Mais il reste un domaine où beaucoup de croyants prient sans jamais voir de résultat, parce qu'ils en ignorent la dimension spirituelle : **ce qu'ils donnent à Dieu.** La quatrième partie de ce livre vous fait découvrir **la mystique de la dîme**, ce qu'elle est vraiment, et comment la consacrer pour qu'elle ouvre les écluses des cieux.
