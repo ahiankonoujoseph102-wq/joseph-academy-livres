@@ -236,3 +236,26 @@
   15-16 ; Marc 11, 14 et 20 ; Lévitique 17, 11 ; Genèse 8, 11 ;
   Matthieu 3, 16 ; 2 Corinthiens 2, 15 ; Exode 30, 37-38 ;
   1 Samuel 16, 23 ; 2 Rois 3, 15 ; Ecclésiaste 9, 8.
+
+## 27 novembre 2026 — chapitre 4 VALIDÉ (« OK »). Partie 1 terminée.
+
+## 27 novembre 2026 — chapitre 5 rédigé, en attente de validation
+
+- manuscrit/partie-2.md : ouverture de la partie 2 et chapitre 5
+  « Prendre possession de son territoire » (vidéos 02, 05, 06, 07).
+- **Retirés, comme l'auteur l'a accepté (question 6)** : verser l'eau
+  pour que la terre « boive le sang » d'un ennemi ; l'eau donnée à boire
+  au mari ou au directeur (Psaumes 45 et 46) pour qu'il aime ou obéisse.
+- Ajouté une phrase : « Cette autorité vous est donnée pour bénir, pour
+  protéger et pour guérir. » À confirmer par Joseph.
+- Laissés de côté : la théorie des quatre éléments (eau, terre, feu, air
+  et leurs opposés), jugée trop ésotérique pour un livre chrétien ; le
+  nom du père spirituel de l'auteur (mal transcrit, à lui demander si
+  on veut le citer).
+- Sommes du sacrifice gardées telles que dites (7 000, 5 000 ou au moins
+  2 000 francs).
+- Versets ajoutés, vérifiés en Louis Segond 1910 : Genèse 13, 17 ;
+  Jérémie 22, 29 ; Actes 19, 11-16 ; Deutéronome 32, 1 ; Ésaïe 1, 2 ;
+  Genèse 1, 9-10 ; 2 Rois 2, 19-22 ; Marc 11, 23-24 (cité par
+  l'auteur) ; Proverbes 19, 17 ; Jacques 1, 27 ; 2 Samuel 24, 24 ;
+  Exode 20, 5.
