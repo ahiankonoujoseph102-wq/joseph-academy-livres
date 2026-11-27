@@ -136,3 +136,18 @@
 - Jamais une phrase de Marcello copiée. Jamais une « révélation » ou un
   témoignage inventé : la voix d'autorité s'appuie sur les tournures
   réelles de l'auteur (« Écoutez-moi bien », « Je parle à quelqu'un »).
+
+## 27 novembre 2026 — chapitre 1, troisième version
+
+- Joseph : trop de numérotation (1, 1.1, 2.1…), ouverture de la partie
+  peu claire, expressions mal formulées. **Gardé.** Remarque honnête
+  faite : *Le secret du lieu secret* de Marcello numérote ses
+  sous-parties ; mais la plupart des grands livres chrétiens à succès
+  ne le font pas, et la numérotation donne un aspect de cours.
+- **Règle désormais :** pas de numérotation dans le texte. Des
+  intertitres simples, et une transition à la fin de chaque section
+  vers la suivante. Seuls les exercices restent numérotés.
+- **Expressions de l'auteur reformulées :** « impacter le physique par
+  le spirituel » devient « agir sur le monde visible à partir du monde
+  invisible ». « Je parle à quelqu'un » (tic oral) retiré.
+- Ouverture de la partie 1 réécrite autour d'Osée 4, verset 6.
