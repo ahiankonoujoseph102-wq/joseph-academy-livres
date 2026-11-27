@@ -467,3 +467,10 @@
   se laver) ? La source ne le dit pas.
 - Point à trancher : le parchemin du Psaume 72 est gardé, avec la mise en
   garde « ce n'est pas l'eau qui enrichit, c'est Dieu ».
+
+## 27 novembre 2026 — chapitre 10 VALIDÉ (« OK garder tel »)
+
+- Version validée = celle envoyée dans la discussion (étapes numérotées
+  pour les pratiques), recopiée dans manuscrit/partie-3.md.
+- Parchemin du Psaume 72 : **gardé tel quel**, avec la mise en garde.
+- Reste à demander à l'auteur : Psaume 1, que fait la femme de l'eau ?
