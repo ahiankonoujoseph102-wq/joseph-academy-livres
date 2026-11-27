@@ -396,3 +396,9 @@
   12 ; Apocalypse 22, 2 ; l'ânesse de Balaam (Nombres 22, 23-31) ;
   Genèse 8, 20-21 ; Josué 6, 20 ; Apocalypse 7, 14. Vérifiés en Louis
   Segond 1910.
+
+## 27 novembre 2026 — chapitre 4 enrichi VALIDÉ ; chapitre 5 enrichi
+
+- Chapitre 5 enrichi (environ 4 300 mots) : Josué 10, 12-14 ; Marc 4,
+  39 et 41 ; Exode 15, 25 ; 2 Rois 5, 10 et 14 ; Actes 10, 2 et 4 ;
+  Josué 18, 1-3. Vérifiés en Louis Segond 1910.

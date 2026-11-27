@@ -36,6 +36,10 @@ Pourquoi parler à la terre ? Parce que tous les esprits qui opèrent sur un ter
 
 La Bible n'hésite pas à s'adresser à la terre. Moïse commence son grand cantique par ces mots : « Cieux ! prêtez l'oreille, et je parlerai ; terre ! écoute les paroles de ma bouche » (Deutéronome 32, verset 1). Le prophète Ésaïe ouvre son livre de la même manière : « Cieux, écoutez ! terre, prête l'oreille ! Car l'Éternel parle » (Ésaïe 1, verset 2). Et Jérémie va jusqu'à l'appeler trois fois : « Terre, terre, terre, écoute la parole de l'Éternel ! » (Jérémie 22, verset 29). **La terre entend. Les prophètes le savaient.**
 
+La création n'entend pas seulement : elle obéit à la parole de ceux que Dieu a établis. Au jour de la bataille de Gabaon, Josué ne pria pas en secret. Il parla devant tout Israël, et il s'adressa aux astres eux-mêmes : « Soleil, arrête-toi sur Gabaon, et toi, lune, sur la vallée d'Ajalon ! Et le soleil s'arrêta, et la lune suspendit sa course » (Josué 10, versets 12 et 13). Et la Bible ajoute : « Il n'y a point eu de jour comme celui-là, ni avant ni après, où l'Éternel ait écouté la voix d'un homme » (Josué 10, verset 14). Jésus, lui, au milieu de la tempête, ne demanda pas au Père de calmer la mer. Il se leva, « il menaça le vent, et dit à la mer : Silence ! tais-toi ! Et le vent cessa, et il y eut un grand calme. » Et ses disciples se demandèrent, saisis de crainte : « Quel est donc celui-ci, à qui obéissent même le vent et la mer ? » (Marc 4, versets 39 et 41).
+
+**Le vent obéit, la mer obéit, le soleil obéit. Pourquoi la terre de votre maison n'obéirait-elle pas à la parole d'un enfant de Dieu qui parle au nom de son Père ?**
+
 Mais avant de parler à la terre, il faut un instrument. Et cet instrument, c'est l'eau.
 
 ## Pourquoi l'eau
@@ -45,6 +49,8 @@ Pour parler à la terre, on peut se servir de plusieurs éléments. Certains uti
 Voici pourquoi. Le vin a été fabriqué par l'homme, à partir du raisin. L'huile a été produite par l'homme, en pressant des fruits. **L'eau, elle, est sortie directement de la main de Dieu.** Personne ne l'a fabriquée. Et surtout, l'eau et la terre se connaissent depuis le commencement. Relisez la Genèse : « Dieu dit : Que les eaux qui sont au-dessous du ciel se rassemblent en un seul lieu, et que le sec paraisse. Et cela fut ainsi. Dieu appela le sec terre, et il appela l'amas des eaux mers » (Genèse 1, versets 9 et 10). La terre est apparue quand les eaux se sont retirées. **Elles sont nées ensemble.** C'est pourquoi l'eau est le meilleur instrument pour parler à la terre.
 
 N'importe quelle eau convient : l'eau de source, l'eau de rivière, l'eau minérale, l'eau du puits ou l'eau du robinet. Ce n'est pas la provenance de l'eau qui compte. **C'est ce que vous en faites avant de vous en servir.**
+
+L'Écriture est remplie de ces eaux devenues instruments de Dieu par une parole. À Mara, le peuple d'Israël ne pouvait pas boire, car l'eau était amère. « Moïse cria à l'Éternel ; et l'Éternel lui indiqua un bois, qu'il jeta dans l'eau. Et l'eau devint douce » (Exode 15, verset 25). Naaman, le général syrien, était lépreux. Élisée lui fit dire : « Va, et lave-toi sept fois dans le Jourdain ; ta chair redeviendra saine. » Et lorsque Naaman obéit, « il se plongea sept fois dans le Jourdain, selon la parole de l'homme de Dieu ; et sa chair redevint comme la chair d'un jeune enfant » (2 Rois 5, versets 10 et 14). Le Jourdain n'avait rien de plus que les fleuves de Syrie. **Ce qui fit la différence, ce fut la parole prononcée sur cette eau.**
 
 Car une eau ordinaire reste une eau ordinaire. Beaucoup de croyants versent de l'eau sur la terre, prient, et ne voient aucun résultat. Ils en concluent que la pratique ne fonctionne pas. En réalité, ils ont oublié une étape. **Ils n'ont pas activé la puissance qui est dans l'eau.**
 
@@ -118,6 +124,8 @@ Puis donnez-le. Si vous êtes dans un village, remettez votre don au chef du vil
 
 Pourquoi le chef du village ? Parce que, comme Abraham à la porte de la ville, vous honorez l'autorité visible du territoire où vous vous installez, et cet honneur rendu dans le visible confirme votre place dans l'invisible. Pourquoi la veuve et le pauvre ? Parce que Dieu les a placés sous sa protection particulière. La Bible déclare : « Celui qui a pitié du pauvre prête à l'Éternel, qui lui rendra selon son œuvre » (Proverbes 19, verset 17). Et l'apôtre Jacques enseigne que « la religion pure et sans tache, devant Dieu notre Père, consiste à visiter les orphelins et les veuves dans leurs afflictions » (Jacques 1, verset 27).
 
+Le don fait au pauvre ne se perd jamais dans le monde spirituel. Il monte. À Césarée vivait un officier romain nommé Corneille, un homme qui « faisait beaucoup d'aumônes au peuple, et priait Dieu continuellement ». Un jour, un ange de Dieu lui apparut et lui dit : « **Tes prières et tes aumônes sont montées devant Dieu, et il s'en est souvenu** » (Actes 10, versets 2 et 4). Ce que Corneille avait donné aux pauvres de sa ville était arrivé jusqu'au trône de Dieu. Il en va de même de votre sacrifice : remis entre les mains d'une veuve ou d'un pauvre, il monte devant Dieu et scelle votre parole.
+
 Ne cherchez pas à faire un sacrifice qui ne vous coûte rien. Lorsque le roi David voulut offrir un sacrifice à l'Éternel sur l'aire d'Aravna, celui-ci lui proposa de tout lui donner gratuitement. David refusa : « Je ne veux pas offrir à l'Éternel, mon Dieu, des holocaustes qui ne me coûtent rien » (2 Samuel 24, verset 24). **Un sacrifice qui ne coûte rien ne scelle rien.** Donnez selon vos moyens, mais donnez vraiment.
 
 Retenez l'ordre, car il est essentiel : **d'abord la parole, ensuite le sacrifice.** La parole établit, le sacrifice confirme. Chaque fois que vous entrez sur un nouveau territoire, faites l'un puis l'autre.
@@ -140,7 +148,9 @@ Une mise en garde s'impose ici. Vous avez peut-être vu des voyageurs, et même 
 
 Il y a deux façons d'habiter un lieu. Le locataire vit dans une maison qui ne lui appartient pas. Il en subit les règles, il en paie le prix, et il sait qu'on peut le mettre dehors. Le possesseur, lui, est chez lui. C'est lui qui décide de ce qui entre et de ce qui sort.
 
-Beaucoup de croyants vivent en locataires spirituels sur leurs propres territoires. Ils habitent, ils travaillent, ils prient, mais ce sont d'autres qui gouvernent. Avec ce chapitre, vous avez reçu les clés pour changer de statut. Vous savez vous présenter. Vous savez activer l'eau. Vous savez parler à la terre. Vous savez sceller votre parole par le sacrifice. **Vous n'avez plus à creuser des puits qu'on vous dispute. Vous pouvez établir votre Rehoboth.**
+Beaucoup de croyants vivent en locataires spirituels sur leurs propres territoires. Ce n'est pas nouveau. Lorsque Israël fut entré dans la terre promise, le pays fut vaincu, mais sept tribus n'avaient pas encore pris possession de leur part. Alors Josué leur adressa ce reproche : « Jusques à quand négligerez-vous de prendre possession du pays que l'Éternel, le Dieu de vos pères, vous a donné ? » (Josué 18, verset 3). Le pays était donné. La victoire était acquise. Mais tant qu'ils ne se levaient pas pour en prendre possession, ils restaient sans héritage. **Ce que Dieu vous a donné, vous devez encore le posséder.**
+
+Beaucoup de croyants, aujourd'hui encore, vivent ainsi. Ils habitent, ils travaillent, ils prient, mais ce sont d'autres qui gouvernent. Avec ce chapitre, vous avez reçu les clés pour changer de statut. Vous savez vous présenter. Vous savez activer l'eau. Vous savez parler à la terre. Vous savez sceller votre parole par le sacrifice. **Vous n'avez plus à creuser des puits qu'on vous dispute. Vous pouvez établir votre Rehoboth.**
 
 ---
 
@@ -150,9 +160,10 @@ Beaucoup de croyants vivent en locataires spirituels sur leurs propres territoir
 
 1. Relisez l'histoire des fils de Scéva (Actes 19, versets 13 à 16). Pourquoi la formule qu'ils prononçaient n'a-t-elle pas fonctionné ? Qu'est-ce que cette histoire vous apprend sur l'importance de se présenter ?
 2. Quelles sont les deux clés pour posséder un territoire, et dans quel ordre s'utilisent-elles ?
-3. Pourquoi l'eau est-elle le meilleur instrument pour parler à la terre ?
-4. Que s'est-il passé à Jéricho lorsque Élisée a parlé aux eaux (2 Rois 2, versets 19 à 22) ? Quel lien faites-vous avec la parole « Ainsi parle l'Éternel » ?
-5. Pourquoi le croyant ne doit-il pas se prosterner devant le sol d'un pays où il arrive ?
+3. Josué a parlé au soleil, Jésus a parlé au vent et à la mer (Josué 10, versets 12 à 14 ; Marc 4, versets 39 à 41). Que vous apprennent ces deux récits sur l'autorité du croyant sur la création ?
+4. Pourquoi l'eau est-elle le meilleur instrument pour parler à la terre ? Que vous apprennent les eaux de Mara et le Jourdain de Naaman ?
+5. Que s'est-il passé à Jéricho lorsque Élisée a parlé aux eaux (2 Rois 2, versets 19 à 22) ? Quel lien faites-vous avec la parole « Ainsi parle l'Éternel » ?
+6. Pourquoi le croyant ne doit-il pas se prosterner devant le sol d'un pays où il arrive ?
 
 **Pour pratiquer**
 
@@ -169,7 +180,7 @@ Beaucoup de croyants vivent en locataires spirituels sur leurs propres territoir
 - **L'eau est le meilleur instrument**, car elle vient directement de Dieu et elle est née avec la terre (Genèse 1, versets 9 et 10).
 - **Activez toujours l'eau avant de vous en servir** : « Ici et maintenant, je fais appel à la première vertu et à la première puissance de l'eau », trois fois.
 - **Pour parler à la terre** : de préférence entre deux et cinq heures du matin ou entre vingt-deux et vingt-trois heures ; face à l'est ; frapper trois fois le sol en disant « Terre, terre », trois fois ; se présenter ; commander « car ainsi parle l'Éternel » ; verser l'eau en prononçant ses paroles.
-- **Le lendemain, scellez par un sacrifice** remis à un chef, à un notable, à une veuve ou à une personne dans le besoin.
+- **Le lendemain, scellez par un sacrifice** remis à un chef, à un notable, à une veuve ou à une personne dans le besoin. Comme les aumônes de Corneille, ce don monte devant Dieu (Actes 10, verset 4).
 - **En arrivant dans un pays**, posez les deux pieds, ne marchez pas tout de suite, et déclarez trois fois : « Je possède cet endroit. » Ne vous prosternez jamais devant le sol.
 
 ## Vers la troisième partie
