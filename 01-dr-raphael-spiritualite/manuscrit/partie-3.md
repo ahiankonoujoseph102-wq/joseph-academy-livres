@@ -788,7 +788,7 @@ Enfin, couchez-vous **sur le dos, le visage tourné vers le ciel.** Pendant votr
 
 Une chose importante, pour que vous ne soyez pas déçu : **ce n'est pas vous qui décidez de ce que vous allez voir.** Ce psaume ne vous donne pas le pouvoir de commander une vision. C'est Dieu qui montre ce qu'il veut, quand il veut et comme il veut. Ce que fait le Psaume 41, c'est disposer votre esprit à recevoir ce que l'Esprit de Dieu voudra vous transmettre. Il ouvre la fenêtre. C'est Dieu qui décide de ce qui entre.
 
-Le Psaume 41 peut aussi se réciter le matin, autant de fois que votre âge, avant de sortir de la maison.
+Le Psaume 41 peut aussi se réciter avant de sortir de la maison, là encore autant de fois que votre âge.
 
 ## Voir le vrai visage d'une personne : le Psaume 82
 
