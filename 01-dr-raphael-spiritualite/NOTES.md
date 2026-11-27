@@ -217,3 +217,22 @@
   18-22 ; Genèse 23, 3-20 ; Exode 31, 2-5 ; Zacharie 4, 6 ;
   2 Rois 2, 9-15 ; 1 Timothée 1, 2 ; 1 Rois 19, 21 (Élisée au service
   d'Élie, sans citation).
+
+## 27 novembre 2026 — chapitre 3 VALIDÉ (« OK »)
+
+## 27 novembre 2026 — chapitre 4 rédigé, en attente de validation
+
+- « Les trois règnes et ce qui attire les esprits » (vidéos 03, 04,
+  05, 07). Fin de la partie 1.
+- Laissés de côté : la plante sur laquelle on urine (trop cru) ; « pigeon
+  et piscine, les riches ont une piscine » (invérifiable) ; le nom des
+  églises du christianisme céleste (« certaines églises ») ; les marques
+  de parfums des adeptes des esprits des eaux ; le classement des
+  24 vieillards (déjà traité au chapitre 2 sous une autre forme).
+- Couleurs : l'auteur dit lui-même « pas biblique, mon expérience » ;
+  le texte le dit honnêtement.
+- Versets ajoutés, vérifiés en Louis Segond 1910 : 2 Samuel 18, 6-9 ;
+  Genèse 1, 11 et 31 ; Exode 12, 22 ; Psaume 51, 9 ; 2 Corinthiens 6,
+  15-16 ; Marc 11, 14 et 20 ; Lévitique 17, 11 ; Genèse 8, 11 ;
+  Matthieu 3, 16 ; 2 Corinthiens 2, 15 ; Exode 30, 37-38 ;
+  1 Samuel 16, 23 ; 2 Rois 3, 15 ; Ecclésiaste 9, 8.

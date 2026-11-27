@@ -427,3 +427,172 @@ Choisissez cependant avec sagesse. Il existe de faux hommes de Dieu, et tous ceu
 ## Vers le chapitre 4
 
 Vous savez maintenant que le monde spirituel fonctionne par la reconnaissance et que derrière toute œuvre se tient un esprit. Mais les esprits n'agissent pas seulement à travers les hommes et les lieux. Ils agissent aussi à travers la création qui nous entoure : les plantes que nous cultivons, les animaux que nous élevons, les odeurs que nous respirons, les sons que nous écoutons et les couleurs que nous portons. Le chapitre suivant vous fait découvrir **les trois règnes et ce qui attire les esprits.**
+
+---
+
+# Chapitre 4 — Les trois règnes et ce qui attire les esprits
+
+> « Dieu vit tout ce qu'il avait fait et voici, cela était très bon. »
+> **Genèse 1, verset 31**
+
+## La forêt qui combattit pour David
+
+Le jour où Absalom se révolta contre son père, le roi David, l'armée du fils et l'armée du père se rencontrèrent dans la forêt d'Éphraïm. Ce fut une bataille terrible. Mais la Bible rapporte un détail que beaucoup de lecteurs survolent : « Le combat s'étendit sur toute la contrée, et la forêt dévora plus de peuple ce jour-là que l'épée n'en dévora » (2 Samuel 18, verset 8).
+
+La forêt dévora plus d'hommes que l'épée. Et Absalom lui-même ne tomba pas sous un coup d'épée ennemi. Il fuyait sur son mulet quand celui-ci passa sous les branches entrelacées d'un grand térébinthe. La tête d'Absalom se prit dans l'arbre. Le mulet continua sa course, et le prince rebelle resta suspendu entre le ciel et la terre (2 Samuel 18, verset 9). C'est un arbre qui l'a arrêté.
+
+Je lis dans cette scène une leçon que la plupart des croyants n'ont jamais entendue. David avait passé sa jeunesse dans les champs, à conduire les troupeaux de son père au milieu des herbes et des arbres. Il avait vécu avec la création, sans la maltraiter. **Et le jour du combat, la création a combattu de son côté.** La forêt n'a pas été neutre. Elle a pris parti.
+
+Ce chapitre vous ouvre les yeux sur une réalité que la religion a longtemps passée sous silence : **la création qui vous entoure n'est pas inerte.** Les plantes, les animaux, les odeurs, les sons et les couleurs ne sont pas de simples décors. Ils ont leur place dans le monde spirituel. Ils peuvent travailler pour vous ou contre vous. Et les esprits s'en servent.
+
+> **La création n'est jamais neutre dans le combat spirituel.**
+
+## Une création vivante
+
+Lorsque Dieu créa le monde, il ne fit pas seulement l'homme. Il dit : « Que la terre produise de la verdure, de l'herbe portant de la semence, des arbres fruitiers donnant du fruit selon leur espèce » (Genèse 1, verset 11). Puis il fit les animaux de la terre, des eaux et du ciel. Et à la fin de son œuvre, il regarda l'ensemble et déclara que cela était très bon.
+
+Le monde vivant est ainsi composé de trois grandes familles, que l'on appelle aussi les trois règnes : **l'espèce humaine, l'espèce végétale et l'espèce animale.** Chacune porte en elle une forme de vie. Et ce que nous avons appris de l'homme au chapitre précédent vaut aussi pour les deux autres : **rien n'agit sans un esprit qui l'accompagne.** Une plante a sa puissance, un animal a sa vertu, mais cette puissance et cette vertu ne s'exercent que par l'esprit qui est auprès d'eux.
+
+Commençons par le règne que nous côtoyons le plus, et dont on abuse le plus : celui des plantes.
+
+## Le règne végétal
+
+### Ce qui se cache derrière la couleur verte
+
+Vous vous souvenez sans doute de vos leçons de sciences au collège. On vous a appris que les plantes sont vertes grâce à une substance appelée la chlorophylle. C'est elle qui leur donne leur couleur et leur permet de vivre de la lumière. Cela est vrai sur le plan scientifique. Mais il existe aussi un plan spirituel. **De même que la chlorophylle donne aux plantes leur couleur, l'esprit qui se tient auprès de chaque plante lui donne sa puissance.**
+
+Regardez ce que font ceux qui servent les ténèbres. Les féticheurs utilisent des plantes. Certaines initiations traditionnelles se font avec des plantes. Pour ériger certaines idoles, il faut certaines herbes et certaines feuilles. Pourquoi des esprits auraient-ils besoin de plantes ? Parce que **chaque plante détient une capacité spirituelle**, et ceux qui connaissent le monde invisible le savent. C'est aussi pourquoi certaines plantes ne se cueillent pas en plein jour, et pourquoi certaines feuilles ne se cueillent qu'en respectant des règles précises que l'herboriste ne vous dira jamais.
+
+### Les plantes ont perdu leur vertu d'origine
+
+Écoutez maintenant ce que je vais vous dire, car c'est un avertissement que je donne à tout le corps du Christ. Au commencement, Dieu a donné leur puissance aux plantes, et pendant des générations, elles ont soigné et sauvé des vies. Mais le monde spirituel connaît des mouvements. **Les esprits mauvais ont réussi à chasser les esprits qui accompagnaient les plantes depuis leur origine, et à prendre leur place.** C'est pourquoi j'affirme, avec la charge qui m'a été confiée, que les plantes de ce monde ont perdu leur première vertu spirituelle.
+
+Pensez à une application sur votre téléphone. Elle fonctionnait parfaitement il y a quelques années. Mais si vous ne l'avez jamais mise à jour, elle ne fonctionne plus comme avant, et elle peut même devenir dangereuse pour votre appareil. **Il n'y a pas d'application sans mise à jour.** Celui qui se sert aujourd'hui des plantes comme on s'en servait autrefois, sans savoir ce qui a changé dans le monde invisible, utilise une application qui n'est plus à jour.
+
+D'où la règle que je vous donne et que je vous demande de garder : **n'utilisez jamais une plante à des fins spirituelles sans une révélation claire du Saint-Esprit.** Pas de bain de plantes, pas de feuilles pour la protection, pas de racines pour le combat spirituel, si l'Esprit de Dieu ne vous l'a pas montré, ou si votre père spirituel ou votre pasteur, conduits par l'Esprit, ne vous l'ont pas indiqué. Pour vous soigner, utilisez les plantes médicinales si vous le voulez : c'est autre chose. Mais pour le monde spirituel, **le nom de Jésus vous suffit.**
+
+### Le bain que je n'ai pas pris
+
+Je vous dis cela parce que je l'ai vécu. J'avais vingt-trois ou vingt-quatre ans. Je connaissais déjà les choses spirituelles, mais je commençais à m'intéresser au monde végétal et à la puissance des plantes, et je m'en servais dans ma vie spirituelle. Dans la maison où je vivais habitait un homme qui était herboriste. Il m'observait. Un jour, il me dit : « Petit, ce que tu portes en toi… je t'imagine dans quelques années. » Puis il commença à m'enseigner le secret des plantes : comment voir dans le monde spirituel avec telle feuille, comment même disparaître avec telle autre.
+
+J'étais curieux, et je l'écoutais. Un jour, il me dit : « Pour devenir spirituellement puissant, il faut que tu prennes un bain avec telle plante, telle plante et telle plante. » Je suis allé cueillir chacune des feuilles qu'il m'avait indiquées. Je les ai préparées, j'ai rempli mon seau et je suis entré dans la douche. Au moment de verser la première eau sur mon corps, l'Esprit de Dieu m'a parlé : « Si tu prends ce bain, c'en est fini pour toi. Toutes les dimensions spirituelles qui sont allumées en toi vont s'éteindre. » Il me l'a répété trois fois.
+
+J'ai été bouleversé. J'ai demandé ce que je devais faire. L'Esprit m'a dit de verser toute cette eau dans les toilettes. Je l'ai fait, j'ai rincé le seau, et je me suis lavé avec de l'eau ordinaire. **Cet homme avait vu quelque chose en moi, et il voulait l'éteindre.** Il avait pris possession, dans le monde spirituel, des plantes qu'il m'avait indiquées. Si je n'avais pas obéi ce jour-là, je ne serais pas ce que je suis aujourd'hui. Depuis ce jour, cet homme ne m'a plus jamais regardé avec bienveillance.
+
+Combien de croyants, aujourd'hui, suivent les conseils trouvés sur les réseaux sociaux, prennent des bains de feuilles, se font préparer des mélanges, et ne comprennent pas pourquoi leurs dimensions spirituelles se sont éteintes, pourquoi ils ne voient plus rien, pourquoi des portes se sont ouvertes sur leur vie et pourquoi les esprits ont désormais accès à eux ?
+
+### On ne mélange pas Dieu
+
+Cela vaut pour tout ce qui ressemble aux plantes. **Le chrétien ne mélange pas.** Vous ne pouvez pas servir le Christ et compter en même temps sur une bague de protection, un savon de protection ou un parfum de protection. L'apôtre Paul pose la question sans détour : « Quel accord y a-t-il entre Christ et Bélial ? […] Quel rapport y a-t-il entre le temple de Dieu et les idoles ? Car nous sommes le temple du Dieu vivant » (2 Corinthiens 6, versets 15 et 16). Celui qui mélange ouvre une porte, et les esprits qu'il a appelés finissent par le malmener.
+
+### Avoir des plantes n'est pas s'en servir
+
+Faut-il pour autant craindre toutes les plantes ? Non. Il faut faire une distinction importante : **avoir des plantes chez soi est une chose, s'en servir à des fins spirituelles en est une autre.** Comme chaque être humain, chaque plante dégage une énergie. Les arbres et les fleurs, par leur simple présence, dégagent une énergie positive dans une maison. Il y a des choses qui ne pourront pas vous arriver à cause des plantes que vous entretenez autour de vous.
+
+Je conseille par exemple d'avoir chez soi un plant d'hysope. Non pas pour en arracher les feuilles et s'en servir, mais pour l'énergie que sa présence apporte. L'hysope n'est pas une plante ordinaire dans l'Écriture. C'est avec un bouquet d'hysope que les Israélites appliquèrent le sang de l'agneau sur les portes de leurs maisons la nuit de la Pâque (Exode 12, verset 22). Et c'est l'hysope que David invoquait dans sa prière de repentance : « Purifie-moi avec l'hysope, et je serai pur ; lave-moi, et je serai plus blanc que la neige » (Psaume 51, verset 9).
+
+### Respecter le règne végétal
+
+Si les plantes ont un esprit, alors on ne les traite pas n'importe comment. Celui qui arrache, coupe et détruit sans discernement peut voir le règne végétal se dresser contre lui. On ne coupe pas un arbre comme on déchire un papier.
+
+Les plantes peuvent même devenir le refuge d'esprits mauvais. J'ai vu de mes propres yeux un serviteur de Dieu avertir les fleurs de son église : il leur avait interdit de servir d'abri à un esprit impur. Une nuit, des esprits vinrent s'y cacher. Il maudit alors la plante, et le lendemain, on la trouva sèche. Ne vous étonnez pas qu'on puisse parler à une plante : Jésus lui-même parla au figuier qui ne portait pas de fruit et lui dit : « Que jamais personne ne mange de ton fruit ! » Le lendemain matin, les disciples virent « le figuier séché jusqu'aux racines » (Marc 11, versets 14 et 20).
+
+Voici donc ce que vous devez faire si vous avez besoin de couper un arbre, de tailler des branches, d'arracher des fleurs ou de dégager un terrain. **Agissez avec un jour d'avance.** La veille au soir, allez auprès de la plante, touchez-la et dites-lui ce que vous ferez le lendemain : « Demain, je couperai tes branches », ou : « Demain, je t'arracherai. » Puis attendez le lendemain pour le faire. En parlant la veille, vous avez averti le monde spirituel. Ce qui doit se retirer se retire. Le lendemain, vous pouvez couper, tailler ou arracher sans conséquence.
+
+> **On ne détruit pas sans avertir ce que Dieu a créé vivant.**
+
+## Le règne animal
+
+### L'âme est dans le sang
+
+Les animaux, eux aussi, ont une forme de vie, une âme et un esprit. Et ils ont une puissance dans le monde spirituel. Chaque animal a sa vertu.
+
+C'est pourquoi, dans le monde de la sorcellerie et des féticheurs, on sacrifie des animaux. Ce n'est pas un hasard : **le sang porte une puissance.** La Bible elle-même le déclare : « Car l'âme de la chair est dans le sang » (Lévitique 17, verset 11). Les ténèbres ont compris cette loi et s'en servent pour leurs œuvres. Le croyant, lui, n'a plus besoin du sang des animaux, car il est couvert par le sang de Jésus-Christ. Mais il doit savoir que les animaux ne sont pas neutres dans le monde spirituel.
+
+### Le pigeon blanc
+
+Il y a un animal que je recommande à tout homme et à toute femme spirituels : **le pigeon blanc.** Je ne vous parle pas de le sacrifier, ni de vous en servir dans une pratique quelconque. Je vous parle de sa simple présence. Les animaux dégagent une énergie, et celle du pigeon blanc est profitable.
+
+La colombe a toujours été liée à l'œuvre de l'Esprit de Dieu. C'est une colombe qui revint vers Noé avec une feuille d'olivier dans son bec, annonçant que les eaux du jugement s'étaient retirées (Genèse 8, verset 11). Et lorsque Jésus sortit des eaux de son baptême, « il vit l'Esprit de Dieu descendre comme une colombe et venir sur lui » (Matthieu 3, verset 16). La colombe coûte parfois cher, mais le pigeon blanc lui est proche, et il est à la portée de tous.
+
+**La présence du pigeon blanc attire d'abord la sainteté, puis les esprits positifs, en particulier l'esprit de guérison et l'esprit de prospérité.** Certaines églises l'ont compris depuis longtemps et élèvent des pigeons dans leur enceinte. Si vous avez l'espace, élevez-en chez vous. Laissez-les s'envoler, aller et revenir. Ce n'est pas le pigeon qui exauce la prière : c'est Dieu. Mais sa présence fait descendre certains esprits de Dieu. J'enseigne que lorsqu'on prie pour un malade dans une maison où vivent des pigeons, le malade se relève plus rapidement.
+
+Pour qu'ils restent chez vous, habituez-les à la maison dès leur jeune âge, ou attendez qu'ils aient des petits : nés dans votre maison, ces petits y resteront attachés et ne s'en éloigneront pas.
+
+## Ce qui attire les esprits
+
+Nous avons parlé des plantes et des animaux. Il reste à parler de ce qui, dans votre vie de tous les jours, attire ou repousse les esprits. Car **le monde spirituel est sensible à trois choses : les odeurs, les sons et les couleurs.** Mais avant d'en parler, il faut commencer par le lieu où tout se joue chaque nuit : votre chambre.
+
+### La chambre définit l'évolution
+
+Il y a des personnes qui n'évoluent pas tout simplement parce que le lieu où elles dorment est spirituellement pollué. **La chambre dans laquelle vous dormez définit souvent l'atmosphère de votre évolution.** C'est là que vous passez vos nuits. C'est là que votre esprit voyage pendant votre sommeil. C'est là que Dieu vous parle par les songes.
+
+Le Saint-Esprit n'aime pas la saleté. Il y a des dimensions de révélation dans les rêves que vous n'atteindrez jamais si vous ne vous lavez pas avant de vous coucher. Si vous voulez commencer à voir dans le monde spirituel, voici le premier pas : **avant d'aller au lit, rendez-vous propre.** Lavez-vous bien. Retirez votre maquillage. Portez un vêtement propre. Gardez votre chambre en ordre. Cela paraît simple, presque trop simple. C'est pourtant par là que commencent beaucoup de vies de révélation.
+
+### Les odeurs
+
+**Les odeurs appellent les esprits.** Observez ceux qui sont liés aux esprits des eaux : ils affectionnent certains parfums, certains talcs, certains savons, et ils s'en servent pour attirer ces esprits. L'odeur de votre chambre et l'odeur de votre corps prédisposent l'atmosphère, et déterminent en partie les esprits qui viendront travailler avec vous.
+
+Il y a des personnes qui prient sans être exaucées parce que l'atmosphère de leur lieu de prière est déjà occupée. Pensez à un homme respectable invité dans une pièce souillée et nauséabonde. Il n'y entrera pas. Ce n'est pas qu'il soit plus faible que celui qui s'y trouve à l'aise. C'est que le lieu ne lui convient pas. **Le Saint-Esprit n'est pas plus faible qu'un esprit impur. Mais il ne s'installe pas dans une atmosphère qui ne lui correspond pas.**
+
+Préparez donc l'atmosphère de votre chambre et de votre lieu de prière avec une bonne odeur : un parfum, ou un diffuseur dans lequel on verse un peu d'eau et quelques gouttes d'arôme. L'apôtre Paul écrivait que nous sommes pour Dieu « la bonne odeur de Christ » (2 Corinthiens 2, verset 15).
+
+Je vous déconseille cependant l'usage de l'encens. Dans l'ancienne alliance, le parfum de l'encens était réservé au service de Dieu, et Dieu avait interdit d'en fabriquer pour soi : « Vous ne ferez point pour vous de parfum semblable […] ; vous le regarderez comme saint, et réservé pour l'Éternel. Quiconque en fera de semblable, pour le sentir, sera retranché de son peuple » (Exode 30, versets 37 et 38). Aujourd'hui, l'encens est largement utilisé dans des pratiques qui ne viennent pas de Dieu. Laissez-le de côté.
+
+### Les sons
+
+**Les sons transportent des esprits.** Toute musique est accompagnée d'un esprit, et la musique que vous écoutez vous influence, que vous le vouliez ou non.
+
+Faites donc très attention à ce que vous écoutez. On trouve aujourd'hui sur internet des musiques dites « de relaxation », des musiques « pour attirer l'argent », des mélodies de méditation et des mantras que l'on répète. Beaucoup de ces sons sont chargés négativement. J'en ai fait moi-même l'expérience. Un soir, j'étais dans ma chambre, élevé dans l'esprit. J'ai vu une de ces musiques proposée pour la méditation et je me suis dit que ce devait être quelque chose d'angélique. Dès que je l'ai écoutée, j'ai perdu l'équilibre. Ma fréquence spirituelle s'est brouillée. Pour recevoir un message prophétique, il faut une fréquence claire. Avec une fréquence brouillée, on a beau se concentrer, on ne reçoit presque plus rien. Celui qui n'est pas sensible aux choses spirituelles n'y verra peut-être aucune différence. Mais celui qui est spirituel la sentira.
+
+À l'inverse, **le son peut attirer l'Esprit de Dieu.** La Bible en donne deux exemples saisissants. Quand le jeune David jouait de la harpe devant le roi Saül, « Saül respirait alors plus à l'aise et se trouvait soulagé, et le mauvais esprit se retirait de lui » (1 Samuel 16, verset 23). Et lorsque le prophète Élisée dut consulter l'Éternel, il dit : « Maintenant, amenez-moi un joueur de harpe. Et comme le joueur de harpe jouait, la main de l'Éternel fut sur Élisée » (2 Rois 3, verset 15).
+
+Quand vous voulez prier longtemps, mettez une adoration chrétienne qui vous inspire. Si vous voulez que votre esprit soit transporté pendant la nuit et voir dans le monde spirituel, endormez-vous au son de l'adoration. **L'Esprit de Dieu descend par ce son, il vous saisit, et vous pouvez voir des choses dans l'esprit.**
+
+### Les couleurs
+
+Chaque couleur a sa signification dans le monde spirituel. Je ne vais pas toutes les détailler, car le chrétien n'a pas à vivre attaché aux couleurs. Mais je veux vous transmettre un code que j'ai appris par ma propre expérience. Je vous le dis honnêtement : ce n'est pas un commandement de la Bible, c'est ce que j'ai vécu, et je sais que cela vous aidera aussi.
+
+**Les jours où vous êtes dans une forte concentration spirituelle, portez du blanc.** Il y a des jours où vous sentez, dès le réveil, que vous êtes très proche de l'esprit, très concentré, prêt à voir Dieu agir de façon surnaturelle. Ces jours-là, habillez-vous de blanc. L'Écriture elle-même associe le blanc à la pureté et à la consécration : « Qu'en tout temps tes vêtements soient blancs, et que l'huile ne manque point sur ta tête » (Ecclésiaste 9, verset 8).
+
+Et lorsqu'un enfant naît dans votre famille, fille ou garçon, **accueillez-le dans le blanc.** Le premier jour, que tout ce qu'il porte, du haut jusqu'en bas, soit blanc. Ce qu'un enfant reçoit à son entrée dans le monde n'est pas sans signification.
+
+> **Ce que vous sentez, ce que vous écoutez et ce que vous portez parle au monde spirituel avant même que vous n'ouvriez la bouche.**
+
+## De la connaissance à la pratique
+
+Nous arrivons au terme de la première partie de ce livre. Vous avez découvert que le visible vient de l'invisible, que le monde spirituel est découpé en territoires, que ces territoires doivent vous reconnaître, et que la création elle-même, avec ses plantes, ses animaux, ses odeurs, ses sons et ses couleurs, participe au combat spirituel.
+
+Tout cela était nécessaire. Mais la connaissance seule ne change pas une vie. **Celui qui connaît les codes sans les pratiquer ressemble à un homme qui possède les clés d'une maison et dort pourtant dehors.** Il est temps maintenant d'ouvrir la porte.
+
+---
+
+## Faites le point
+
+**Pour réfléchir**
+
+1. Relisez 2 Samuel 18, versets 8 et 9. Que vous apprend la manière dont Absalom a été arrêté sur la place de la création dans le combat spirituel ?
+2. Pourquoi les plantes sont-elles comparées, dans ce chapitre, à une application qui n'a pas été mise à jour ? Que retenez-vous de cette image ?
+3. Quelle différence faites-vous entre avoir des plantes chez soi et s'en servir à des fins spirituelles ?
+4. Pourquoi le chrétien ne doit-il pas compter sur une bague, un savon ou un parfum de protection ?
+5. Quelles sont les trois choses qui attirent les esprits ? Laquelle demande le plus de changements dans votre vie ?
+
+**Pour pratiquer**
+
+1. **Faites l'inventaire de votre maison.** Notez dans votre cahier tout ce que vous avez utilisé ou gardé « pour la protection » : bagues, savons, parfums, poudres, feuilles, objets reçus d'un guérisseur. Priez sur cette liste, et débarrassez-vous de ce qui ne vient pas de Dieu.
+2. **Préparez votre chambre.** Pendant les sept prochains jours, lavez-vous avant de dormir, portez un vêtement propre, mettez de l'ordre dans votre chambre et parfumez l'atmosphère sans encens. Endormez-vous au son d'une adoration chrétienne. Chaque matin, notez vos rêves dans votre cahier, même ceux qui vous semblent sans importance.
+3. **Faites le tri dans ce que vous écoutez.** Parcourez la musique enregistrée sur votre téléphone. Supprimez les mélodies de « relaxation », de « méditation » ou « pour attirer l'argent » dont vous ne connaissez pas l'origine. Constituez une liste d'adorations chrétiennes pour vos temps de prière.
+4. **Si vous devez couper une plante ou un arbre**, appliquez la règle de la veille : touchez-la le soir, annoncez-lui ce que vous ferez, et attendez le lendemain.
+
+## Ce qu'il faut retenir
+
+- **La création n'est pas inerte.** Le monde vivant est composé de trois règnes : l'humain, le végétal et l'animal. Chacun a sa vie et son esprit.
+- **Les plantes ont perdu leur vertu spirituelle d'origine.** N'utilisez jamais une plante à des fins spirituelles sans une révélation claire du Saint-Esprit. Le nom de Jésus vous suffit.
+- **Le chrétien ne mélange pas** : pas de bague, de savon ni de parfum de protection.
+- **Avoir des plantes chez soi n'est pas s'en servir.** Avant de couper une plante, avertissez-la la veille.
+- **L'âme est dans le sang** (Lévitique 17, verset 11). La présence du pigeon blanc attire la sainteté, la guérison et la prospérité.
+- **La chambre définit l'évolution.** Les odeurs, les sons et les couleurs attirent les esprits : préparez votre atmosphère, choisissez l'adoration, portez du blanc les jours de forte concentration.
+
+## Vers la deuxième partie
+
+Vous avez maintenant compris comment fonctionne le monde spirituel. Il est temps de passer de la connaissance à l'action. La deuxième partie de ce livre vous apprend à pratiquer : à vous présenter aux éléments, à activer la puissance de l'eau, à parler à la terre et à sceller votre place sur un territoire par le sacrifice. C'est là que vous allez cesser d'être un simple habitant pour devenir **le possesseur de votre territoire.**
