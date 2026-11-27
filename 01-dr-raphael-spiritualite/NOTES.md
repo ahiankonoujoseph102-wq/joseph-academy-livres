@@ -564,3 +564,14 @@
   « La Connaissance spirituelle » et ses deux livres cités dans la vidéo 09.
 - Question ajoutée pour l'auteur : le Psaume 23 figure à la fois dans la
   liste du matin et dans les psaumes de combat (chapitre 7).
+
+## 27 novembre 2026 — message de la deuxième série de questions
+
+- Joseph choisit l'option 1 : préparer le message pour l'auteur.
+- Message prêt : analyse/message-2-auteur.md (16 points : dédicace,
+  remerciements, préface, à propos de l'auteur, version de la Bible,
+  listes de psaumes, Psaume 23, cinquième lieu, Psaume 1, verset de l'eau,
+  deux ajouts, père spirituel, tome 2, et les attentes anciennes).
+- Le témoignage de la voiture sans conducteur n'est plus dans le
+  manuscrit (disparu lors de la réécriture du chapitre 1) : question retirée.
+- La quatrième de couverture n'a pas reçu de « OK » explicite.
