@@ -364,7 +364,21 @@ Remarquez la réponse des habitants : « Tu es un prince de Dieu au milieu de no
 
 Voilà le modèle. L'homme à qui Dieu avait promis tout le pays a commencé par se présenter, par demander et par se faire reconnaître. Il n'a pas méprisé l'autorité du territoire où il vivait. Et c'est précisément parce qu'il l'a fait que sa possession est devenue indiscutable.
 
-Cette règle vaut dans le visible comme dans l'invisible. Celui qui arrive dans un village et méprise le chef du village se prépare des difficultés. Celui qui arrive sur un territoire spirituel et méprise l'autorité qui y règne se prépare des combats inutiles. **Il faut entrer en contact avec le territoire avant de prétendre y régner.** Je vous enseignerai, dans la deuxième partie de ce livre, comment entrer en contact avec la terre et comment sceller votre place par le sacrifice. Ce sont les deux clés qui vous feront reconnaître et qui vous permettront de dominer un territoire. Mais avant de les recevoir, il faut comprendre ce qui se trouve derrière toute réussite.
+Cette règle vaut dans le visible comme dans l'invisible. Celui qui arrive dans un village et méprise le chef du village se prépare des difficultés. Celui qui arrive sur un territoire spirituel et méprise l'autorité qui y règne se prépare des combats inutiles. **Il faut entrer en contact avec le territoire avant de prétendre y régner.** Je vous enseignerai, dans la deuxième partie de ce livre, comment entrer en contact avec la terre et comment sceller votre place par le sacrifice. Ce sont les deux clés qui vous feront reconnaître et qui vous permettront de dominer un territoire. Mais avant de les recevoir, il faut voir comment Dieu lui-même fait reconnaître ceux qui se placent sous son autorité.
+
+## Ruth, l'étrangère qui trouva grâce
+
+Ruth était Moabite. Pour un Israélite de son temps, elle venait d'un peuple étranger, d'une terre qui servait d'autres dieux. Lorsque son mari mourut, rien ne l'obligeait à quitter son pays. Pourtant, elle s'attacha à sa belle-mère Naomi et prononça ces paroles qui allaient changer sa destinée : « Où tu iras j'irai, où tu demeureras je demeurerai ; ton peuple sera mon peuple, et ton Dieu sera mon Dieu » (Ruth 1, verset 16).
+
+Arrivée à Bethléhem, Ruth n'avait rien. Elle alla glaner des épis derrière les moissonneurs, et « il se trouva par hasard que la pièce de terre appartenait à Boaz » (Ruth 2, verset 3). Le propriétaire du champ la remarqua, la protégea, ordonna qu'on laisse tomber des épis pour elle. Ruth, stupéfaite, se prosterna et lui demanda : « Comment ai-je trouvé grâce à tes yeux, pour que tu t'intéresses à moi, à moi qui suis une étrangère ? » (Ruth 2, verset 10).
+
+La réponse de Boaz révèle tout le secret : « Que l'Éternel te rende ce que tu as fait, et que ta récompense soit entière de la part de l'Éternel, le Dieu d'Israël, **sous les ailes duquel tu es venue te réfugier** ! » (Ruth 2, verset 12). Ruth n'a pas été reconnue parce qu'elle était forte, riche ou habile. **Elle a été reconnue parce qu'elle s'était placée sous l'autorité du Dieu qui régnait sur cette terre.** Le champ où elle glanait par hasard est devenu le champ où elle a trouvé son mari, et de sa descendance est sorti le roi David.
+
+Retenez cette leçon : **un territoire reconnaît celui qui vient sous la bonne couverture.** L'étrangère qui s'abrite sous les ailes du vrai Dieu trouve grâce là où d'autres, nés sur place, restent des inconnus.
+
+Dieu a même donné à son peuple, lorsqu'il était déporté à Babylone, une instruction surprenante sur le lien entre un croyant et le territoire où il vit : « Bâtissez des maisons, et habitez-les ; plantez des jardins, et mangez-en les fruits. […] Recherchez le bien de la ville où je vous ai menés en captivité, et priez l'Éternel en sa faveur, **parce que votre bonheur dépend du sien** » (Jérémie 29, versets 5 et 7). Le peuple de Dieu ne devait pas vivre à Babylone comme un étranger hostile, ni comme un locataire indifférent. Il devait prier pour le territoire, car son propre bonheur y était lié. **Votre prospérité et celle du lieu où vous vivez sont attachées l'une à l'autre.**
+
+Mais avant d'apprendre à vous faire reconnaître, il faut comprendre ce qui se trouve derrière toute réussite.
 
 ## Derrière chaque œuvre, un esprit
 
@@ -375,6 +389,8 @@ Chaque métier a son esprit. Il y a l'esprit du couturier, l'esprit du plombier,
 La Bible le montre de façon frappante. Lorsque Dieu voulut faire construire le tabernacle, il ne choisit pas seulement un bon artisan. Il dit à Moïse : « J'ai choisi Betsaleel, fils d'Uri, fils de Hur, de la tribu de Juda. Je l'ai rempli de l'Esprit de Dieu, de sagesse, d'intelligence, et de savoir pour toutes sortes d'ouvrages, je l'ai rendu capable de faire des inventions, de travailler l'or, l'argent et l'airain, de graver les pierres à enchâsser, de travailler le bois, et d'exécuter toutes sortes d'ouvrages » (Exode 31, versets 2 à 5). Le travail du bois, de l'or et de la pierre était un travail manuel. Et pourtant, **c'est l'Esprit de Dieu qui rendait la main de Betsaleel capable.**
 
 Je peux en témoigner dans mon propre ministère. Lorsque je prie, des personnes qui vivent en Europe, en Amérique ou dans différents pays d'Afrique sont guéries et délivrées, alors qu'elles ne m'ont jamais vu. Elles ont seulement entendu ma voix. Ce n'est pas ma voix qui les guérit. Ce n'est pas mon intelligence. Si je prie bien, si j'enseigne bien, si je prêche bien, ce n'est pas moi : **c'est l'Esprit de Dieu qui m'accompagne et qui me conduit.**
+
+L'histoire de Joseph le montre avec éclat. Vendu par ses frères, il arriva en Égypte comme esclave dans la maison de Potiphar. Il n'avait ni liberté, ni argent, ni relations. Et pourtant, la Bible dit : « L'Éternel fut avec lui, et la prospérité l'accompagna. […] Son maître vit que l'Éternel était avec lui, et que l'Éternel faisait prospérer entre ses mains tout ce qu'il entreprenait » (Genèse 39, versets 2 et 3). Bien plus : « l'Éternel bénit la maison de l'Égyptien, à cause de Joseph ; et la bénédiction de l'Éternel fut sur tout ce qui lui appartenait, soit à la maison, soit aux champs » (Genèse 39, verset 5). **L'esprit qui accompagnait Joseph n'a pas seulement béni Joseph. Il a béni le lieu où Joseph se trouvait.** Un esclave, parce que Dieu était avec lui, est devenu une source de bénédiction pour toute une maison égyptienne.
 
 Il existe donc toutes sortes d'esprits capables d'accompagner une œuvre. Mais il y en a un qui est au-dessus de tous : **le plus puissant de tous les esprits, c'est le Saint-Esprit.** Dieu l'a déclaré par le prophète Zacharie : « Ce n'est ni par la puissance ni par la force, mais c'est par mon esprit, dit l'Éternel des armées » (Zacharie 4, verset 6). Lorsque le Saint-Esprit accompagne ce que vous faites, tout devient plus facile.
 
@@ -388,7 +404,7 @@ Dans le monde spirituel, lorsqu'une personne est appelée à grandir, elle est s
 
 Prenez le téléphone le plus moderne du marché. Il a le plus bel écran, les meilleures applications, les réglages les plus avancés. Mais si sa batterie est vide, ou si elle est abîmée, il ne sert à rien. Il reste éteint dans votre main. **Il en va de même de l'être humain.** Chaque personne porte en elle une énergie. Cette énergie, c'est la puissance spirituelle. Tant qu'elle est chargée, les dimensions de votre vie peuvent s'activer. Quand elle se vide, il y a des choses qui ne peuvent plus fonctionner en vous, quels que soient vos dons et vos diplômes.
 
-La bonne nouvelle, c'est que ceux qui croient en Jésus-Christ ont reçu le Saint-Esprit, **et le Saint-Esprit les recharge.** Il est la source d'énergie qui ne s'épuise pas. Le croyant qui demeure dans la présence de Dieu est comme un téléphone qui reste branché.
+La bonne nouvelle, c'est que ceux qui croient en Jésus-Christ ont reçu le Saint-Esprit, **et le Saint-Esprit les recharge.** Il est la source d'énergie qui ne s'épuise pas. Le croyant qui demeure dans la présence de Dieu est comme un téléphone qui reste branché. Jésus l'a dit avec une autre image, celle de la vigne : « Demeurez en moi, et je demeurerai en vous. Comme le sarment ne peut de lui-même porter du fruit, s'il ne demeure attaché au cep, ainsi vous ne le pouvez non plus, si vous ne demeurez en moi. […] Car sans moi vous ne pouvez rien faire » (Jean 15, versets 4 et 5). Le sarment détaché sèche, le téléphone débranché s'éteint. **Celui qui se coupe de la présence de Dieu voit sa batterie se vider, même s'il continue d'aller à l'église.**
 
 Mais l'image va plus loin. Un téléphone chargé ne suffit pas : il lui faut aussi un réseau. Vous pouvez avoir en main le téléphone le plus cher du monde. Si vous arrivez dans une zone où il n'y a pas d'antenne relais, il ne captera rien. Vous ne pourrez ni appeler, ni recevoir, ni envoyer le moindre message. **Le territoire, c'est le réseau.** Si le territoire ne vous reconnaît pas, vous pouvez être chargé du Saint-Esprit et pourtant ne pas fonctionner pleinement sur ce territoire. C'est pourquoi il faut prendre autorité sur le lieu où vous vivez et où vous travaillez.
 
@@ -410,7 +426,7 @@ Un avertissement s'impose ici. Beaucoup de croyants veulent commander le monde d
 
 ## Le père spirituel
 
-Élisée n'est pas devenu Élisée tout seul. Avant de recevoir le manteau d'Élie, il l'avait suivi et servi. Timothée n'est pas devenu Timothée tout seul : Paul l'appelait « mon enfant légitime en la foi » (1 Timothée 1, verset 2). **Dans le monde spirituel, il y a des dimensions que vous n'atteindrez jamais sans un père spirituel.** Il y a des réussites que vous n'obtiendrez jamais sans lui.
+Élisée n'est pas devenu Élisée tout seul. Avant de recevoir le manteau d'Élie, il l'avait suivi et servi. Et au moment où Élie fut enlevé, ce n'est pas « mon maître » qu'il cria, mais : « Mon père ! mon père ! Char d'Israël et sa cavalerie ! » (2 Rois 2, verset 12). Il ne le voyait pas comme un simple enseignant. Il le voyait comme son père. Josué n'est pas devenu Josué tout seul : il avait servi Moïse pendant des années, et la Bible déclare que « Josué, fils de Nun, était rempli de l'esprit de sagesse, car Moïse avait posé ses mains sur lui » (Deutéronome 34, verset 9). Timothée n'est pas devenu Timothée tout seul : Paul l'appelait « mon enfant légitime en la foi » (1 Timothée 1, verset 2). Et Paul savait la différence entre un maître et un père : « Quand vous auriez dix mille maîtres en Christ, vous n'avez cependant pas plusieurs pères » (1 Corinthiens 4, verset 15). On peut avoir beaucoup d'enseignants. On n'a qu'un petit nombre de pères. **Dans le monde spirituel, il y a des dimensions que vous n'atteindrez jamais sans un père spirituel.** Il y a des réussites que vous n'obtiendrez jamais sans lui.
 
 Pourquoi ? Parce qu'il faut quelqu'un qui ait une autorité spirituelle pour vous apprendre ce qu'il faut faire, pour vous corriger quand vous vous trompez et pour vous soutenir dans le combat. Celui qui entre dans le monde spirituel sans guide ressemble à un voyageur qui s'aventure dans un pays inconnu sans carte et sans escorte. Il peut avancer un moment. Mais au premier piège, il tombe.
 
@@ -429,20 +445,23 @@ Choisissez cependant avec sagesse. Il existe de faux hommes de Dieu, et tous ceu
 1. Relisez l'histoire des puits d'Isaac (Genèse 26, versets 18 à 22). Avez-vous déjà vécu une situation où vous avez dû « creuser plusieurs puits » avant de trouver un lieu qui vous accueille ?
 2. Expliquez avec vos propres mots ce que veut dire « être reconnu par un territoire ». Quel exemple de la vie courante vous aide le mieux à le comprendre ?
 3. Pourquoi Abraham, à qui Dieu avait promis tout le pays, a-t-il demandé aux fils de Heth de lui céder un champ ? Que vous apprend son attitude ?
-4. Dans l'image du téléphone, que représentent la batterie, la recharge et le réseau ?
-5. Pourquoi faut-il chercher l'onction d'un homme de Dieu plutôt que son charisme ou sa réputation ?
+4. Pourquoi Ruth, une étrangère, a-t-elle trouvé grâce dans le champ de Boaz (Ruth 2, verset 12) ? Sous quelle couverture vous êtes-vous placé sur votre territoire ?
+5. Dans l'image du téléphone, que représentent la batterie, la recharge et le réseau ?
+6. Pourquoi faut-il chercher l'onction d'un homme de Dieu plutôt que son charisme ou sa réputation ?
 
 **Pour pratiquer**
 
 1. **Faites le bilan de vos territoires.** Reprenez la liste des territoires que vous avez dressée au chapitre précédent. Pour chacun, posez-vous la question : « Ce lieu m'accueille-t-il, ou me dispute-t-il chaque puits ? » Notez les signes de rejet que vous observez : projets qui n'aboutissent pas, conflits qui reviennent, clients qui ne viennent pas.
 2. **Vérifiez votre batterie.** Pendant une semaine, notez chaque soir dans votre cahier le temps que vous avez réellement passé dans la présence de Dieu : prière, lecture de la Bible, adoration. Demandez-vous honnêtement si votre batterie est chargée ou si elle se vide.
-3. **Réfléchissez à votre père spirituel.** Avez-vous un père ou une mère spirituelle ? Si oui, écrivez ce que vous avez déjà reçu de lui et ce que vous attendez encore de Dieu à travers lui. Si non, priez pendant sept jours pour que Dieu vous conduise vers la bonne personne, et notez les noms qui vous viennent à l'esprit sans vous précipiter.
+3. **Priez pour votre ville.** Pendant une semaine, appliquez Jérémie 29, verset 7 : chaque jour, priez pour le bien du quartier et de la ville où vous vivez, pour ses habitants, ses autorités et sa paix. Notez ce que cette prière change dans votre regard sur votre territoire.
+4. **Réfléchissez à votre père spirituel.** Avez-vous un père ou une mère spirituelle ? Si oui, écrivez ce que vous avez déjà reçu de lui et ce que vous attendez encore de Dieu à travers lui. Si non, priez pendant sept jours pour que Dieu vous conduise vers la bonne personne, et notez les noms qui vous viennent à l'esprit sans vous précipiter.
 
 ## Ce qu'il faut retenir
 
 - **Le monde spirituel fonctionne par la reconnaissance.** Un territoire qui ne vous reconnaît pas vous rejette, comme les bergers de Guérar ont disputé les puits d'Isaac.
 - **Les lois du monde spirituel s'appliquent aussi au croyant.** Avoir le Saint-Esprit ne dispense pas de connaître ces lois.
 - **Il faut entrer en contact avec un territoire avant de prétendre y régner**, comme Abraham s'est fait reconnaître à la porte de la ville.
+- **Un territoire reconnaît celui qui vient sous la bonne couverture**, comme Ruth sous les ailes du Dieu d'Israël. Votre bonheur est lié à celui du lieu où vous vivez (Jérémie 29, verset 7).
 - **Rien ne réussit sans un esprit qui l'accompagne.** Chaque métier a son esprit, et le plus puissant de tous est le Saint-Esprit.
 - **L'homme est comme un téléphone** : sa batterie est sa puissance spirituelle, le Saint-Esprit la recharge, et le territoire est son réseau.
 - **L'onction se transmet**, comme le manteau d'Élie est passé à Élisée. Il y a des dimensions qu'on n'atteint pas sans un père spirituel.

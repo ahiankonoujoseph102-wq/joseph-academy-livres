@@ -378,3 +378,14 @@
   Deutéronome 6, 9 (la Parole sur les portes).
 - Format : le client propose A4. Avis donné : A4 déconseillé pour ce
   genre de livre. En attente du choix.
+
+## 27 novembre 2026 — chapitre 2 VALIDÉ ; format ; chapitre 3 enrichi
+
+- Chapitre 2 réécrit : validé (« OK »).
+- Format : Joseph « valide mon choix ». J'avais proposé A5 (impression
+  locale) ou 15,24 × 22,86 cm (vente Amazon). **Retenu par défaut : A5**
+  (format de CLAUDE.md). A4 écarté. À reconfirmer si vente sur Amazon.
+- Chapitre 3 enrichi (environ 4 400 mots) : Ruth et Boaz (Ruth 1, 16 ;
+  2, 3, 10, 12) ; Jérémie 29, 5 et 7 ; Joseph chez Potiphar (Genèse 39,
+  2-5) ; Jean 15, 4-5 ; 2 Rois 2, 12 ; Deutéronome 34, 9 ;
+  1 Corinthiens 4, 15. Tous vérifiés en Louis Segond 1910.
