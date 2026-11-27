@@ -172,3 +172,16 @@
   Daniel 10, 20 ; Deutéronome 32, 8 ; Actes 17, 26 ; Josué 1, 3 ;
   Hébreux 1, 14 ; Genèse 28, 11-17 ; Ézéchiel 21, 26 (numérotation de
   cette édition ; certaines éditions Segond numérotent 21, 21).
+
+## 27 novembre 2026 — nouveau titre voulu par le Dr Raphaël
+
+- Titre demandé par l'auteur (capture WhatsApp envoyée par Joseph) :
+  « À LA DÉCOUVERTE DES SECRETS & CODES DU MONDE SPIRITUEL :
+  Comprendre, pratiquer et prier afin d'impacter le physique par le
+  spirituel. » Mention : « Livre chrétien ».
+- **Avis : gardé.** C'est son titre et sa formule. Corrections
+  typographiques seulement à proposer (« et » au lieu de « & », À
+  accentué). Pas besoin de tout reprendre : les chapitres 1 et 2
+  restent valables.
+- Conséquence : les titres des parties, calqués sur l'ancien
+  sous-titre, sont à réaligner. En attente du choix de Joseph.
