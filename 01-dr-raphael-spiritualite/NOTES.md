@@ -542,3 +542,11 @@
   question toujours ouverte).
 - Titre de la partie 4 harmonisé : « PARTIE 4 — » comme les autres.
 - Dédicace, préface, remerciements : en attente des informations de l'auteur.
+
+## 27 novembre 2026 — introduction VALIDÉE (« OK ») ; conclusion rédigée (en attente)
+
+- Nouveau fichier manuscrit/fin.md : conclusion. Ouverture sur la parabole
+  des talents. Versets vérifiés : Matthieu 25, 14-30 ; Jean 13, 17 ;
+  Josué 1, 9 ; Nombres 6, 24-26.
+- Annonce du tome 2 limitée à ce que dit la source (vidéo 11) : le mystère
+  de l'argent.
