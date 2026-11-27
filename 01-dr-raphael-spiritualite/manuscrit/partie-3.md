@@ -349,11 +349,11 @@ Parmi tous les psaumes, il en est un qui occupe une place à part dans l'enseign
 
 ## La veuve qui ne se taisait pas
 
-Jésus raconta un jour l'histoire d'une veuve. Dans sa ville siégeait un juge « qui ne craignait point Dieu et qui n'avait d'égard pour personne ». Cette femme n'avait ni argent, ni relations, ni avocat. Elle n'avait qu'une chose : une cause juste et une voix. Elle venait sans cesse devant ce juge et lui répétait : « Fais-moi justice de ma partie adverse. »
+Jésus raconta un jour l'histoire d'une veuve. Dans sa ville siégeait un juge « qui ne craignait point Dieu et qui n'avait d'égard pour personne ». Cette femme n'avait ni argent, ni relations, ni avocat. Dans le monde où elle vivait, une veuve n'avait presque aucun poids. Elle n'avait qu'une chose : une cause juste et une voix. Elle venait sans cesse devant ce juge et lui répétait : « Fais-moi justice de ma partie adverse. »
 
 Longtemps, le juge refusa. Puis il se dit en lui-même : « Quoique je ne craigne point Dieu et que je n'aie d'égard pour personne, néanmoins, parce que cette veuve m'importune, je lui ferai justice. » Et Jésus conclut : « Et Dieu ne fera-t-il pas justice à ses élus, qui crient à lui jour et nuit, et tardera-t-il à leur égard ? Je vous le dis, il leur fera promptement justice » (Luc 18, versets 2 à 8).
 
-Si un juge injuste finit par rendre justice à une veuve qui l'importune, **combien plus le Juge de toute la terre rendra-t-il justice à ses enfants qui crient vers lui.** Mais remarquez ce que la veuve a fait : elle ne s'est pas contentée de souffrir en silence. Elle a porté sa cause devant celui qui pouvait trancher. Elle l'a présentée, encore et encore, jusqu'à obtenir le jugement.
+Si un juge injuste finit par rendre justice à une veuve qui l'importune, **combien plus le Juge de toute la terre rendra-t-il justice à ses enfants qui crient vers lui.** Mais remarquez ce que la veuve a fait : elle ne s'est pas contentée de souffrir en silence. Elle ne s'est pas plainte à ses voisines. Elle n'a pas maudit son adversaire dans le secret de sa maison. Elle a porté sa cause devant celui qui pouvait trancher. Elle l'a présentée, encore et encore, jusqu'à obtenir le jugement.
 
 C'est exactement ce que vous allez apprendre dans ce chapitre. Il existe dans le livre des Psaumes un psaume particulier, par lequel le croyant porte sa cause devant le tribunal du ciel et réclame la justice de Dieu. **C'est le Psaume 94.** Et il existe une manière précise de le pratiquer, que l'on appelle la convocation spirituelle.
 
@@ -363,13 +363,19 @@ C'est exactement ce que vous allez apprendre dans ce chapitre. Il existe dans le
 
 Pour comprendre la convocation spirituelle, il faut d'abord savoir une chose : **dans le monde spirituel, il existe un tribunal.** Il y a un jugement qui se tient, souvent la nuit, et des verdicts qui y sont rendus.
 
-La Bible nous laisse entrevoir ce tribunal. Le prophète Daniel l'a vu dans une vision : « Je regardai, pendant que l'on plaçait des trônes. Et l'ancien des jours s'assit. […] Les juges s'assirent, et les livres furent ouverts » (Daniel 7, versets 9 et 10). Le prophète Zacharie, lui, a vu le souverain sacrificateur Josué « debout devant l'ange de l'Éternel, et Satan qui se tenait à sa droite pour l'accuser » (Zacharie 3, verset 1). Et l'Apocalypse appelle Satan « l'accusateur de nos frères, celui qui les accusait devant notre Dieu jour et nuit » (Apocalypse 12, verset 10).
+La Bible nous laisse entrevoir ce tribunal à plusieurs reprises. Le prophète Daniel l'a vu dans une vision : « Je regardai, pendant que l'on plaçait des trônes. Et l'ancien des jours s'assit. […] Les juges s'assirent, et les livres furent ouverts » (Daniel 7, versets 9 et 10). Le livre de Job nous montre une séance de ce conseil céleste : « Les fils de Dieu vinrent un jour se présenter devant l'Éternel, et Satan vint aussi au milieu d'eux. » Et Satan, ce jour-là, vint accuser Job : « Étends ta main, touche à tout ce qui lui appartient, et je suis sûr qu'il te maudit en face » (Job 1, versets 6 et 11). Job, sur la terre, ne savait rien de ce qui se disait sur lui dans le ciel. Et pourtant, tout ce qui allait lui arriver avait été plaidé là-haut.
 
-Voyez ce que ces passages révèlent. **Il y a des trônes, des juges, des livres ouverts, un accusateur et des accusés.** Ce que nous vivons sur la terre est souvent plaidé et jugé dans l'invisible avant d'être exécuté dans le visible.
+Le prophète Zacharie, lui, a vu le souverain sacrificateur Josué « debout devant l'ange de l'Éternel, et Satan qui se tenait à sa droite pour l'accuser » (Zacharie 3, verset 1). Et l'Apocalypse appelle Satan « l'accusateur de nos frères, celui qui les accusait devant notre Dieu jour et nuit » (Apocalypse 12, verset 10).
+
+Il y a plus encore. Le prophète Michée a vu une décision se prendre dans ce conseil avant de s'accomplir sur la terre. Il raconta au roi d'Israël : « J'ai vu l'Éternel assis sur son trône, et toute l'armée des cieux se tenant auprès de lui, à sa droite et à sa gauche. » Et il décrivit le débat qui s'y tenait au sujet du roi Achab, jusqu'à ce que la décision soit prise (1 Rois 22, versets 19 à 22). Peu après, sur le champ de bataille de Ramoth en Galaad, ce qui avait été décidé dans le ciel s'accomplit exactement.
+
+Voyez ce que ces passages révèlent. **Il y a des trônes, des juges, des livres ouverts, un accusateur, des accusés et des décisions.** Ce que nous vivons sur la terre est souvent plaidé et jugé dans l'invisible avant d'être exécuté dans le visible.
 
 Les complots de l'ennemi contre votre vie ne s'exécutent pas n'importe comment. **Ils ont besoin d'un verdict.** Celui qui veut vous nuire va plaider contre vous dans le monde spirituel. Et si personne ne plaide pour vous, si vous restez silencieux, le verdict peut vous être défavorable. C'est pourquoi tant de personnes perdent des procès qu'elles auraient dû gagner, se voient arracher ce qui leur appartient, ou restent sans défense face à ceux qui les ont trompées.
 
-La convocation spirituelle, c'est l'acte par lequel vous prenez l'initiative. **Vous ne laissez plus l'adversaire plaider seul. Vous convoquez votre affaire devant le tribunal de Dieu, et vous demandez au Juge de toute la terre de trancher.**
+Mais voici la bonne nouvelle : **dans ce tribunal, le croyant n'est pas sans défense.** L'apôtre Jean l'écrit : « Nous avons un avocat auprès du Père, Jésus-Christ le juste » (1 Jean 2, verset 1). L'accusateur plaide contre vous jour et nuit, mais vous avez un avocat qui n'a jamais perdu une cause. Encore faut-il lui confier la vôtre.
+
+La convocation spirituelle, c'est l'acte par lequel vous prenez l'initiative. **Vous ne laissez plus l'adversaire plaider seul. Vous convoquez votre affaire devant le tribunal de Dieu, au nom de Jésus-Christ, et vous demandez au Juge de toute la terre de trancher.**
 
 ## Les causes que l'on porte devant Dieu
 
@@ -377,11 +383,19 @@ Le Psaume 94 et la convocation spirituelle concernent toutes les situations où 
 
 On veut vous arracher un terrain que vous avez acheté honnêtement. Vous êtes en conflit avec votre conjoint et l'on veut vous retirer la garde de vos enfants. Vous êtes convoqué devant un tribunal, ou vous devez y faire comparaître quelqu'un. Quelqu'un vous a escroqué, vous a trompé, vous a volé ce que vous aviez gagné à la sueur de votre front. Quelqu'un vous a blessé injustement et refuse de le reconnaître. **Toute affaire où le droit doit être dit et où le juste doit être défendu peut être portée devant Dieu par le Psaume 94.**
 
+La Bible raconte l'histoire d'un homme à qui l'on vola sa terre. Il s'appelait Naboth et possédait une vigne à côté du palais du roi Achab. Le roi la voulut. Naboth refusa : « Que l'Éternel me garde de te donner l'héritage de mes pères ! » (1 Rois 21, verset 3). Alors la reine Jézabel organisa un faux procès. Deux hommes sans scrupules furent placés devant le peuple pour témoigner faussement contre Naboth. On l'accusa d'avoir maudit Dieu et le roi, on le lapida, et Achab descendit prendre possession de la vigne.
+
+Sur la terre, tout semblait terminé. Le faible avait perdu, le puissant avait gagné. Mais dans le ciel, l'affaire n'était pas close. « Alors la parole de l'Éternel fut adressée à Élie, le Thischbite, en ces mots : Lève-toi, descends au-devant d'Achab, roi d'Israël à Samarie ; le voilà dans la vigne de Naboth, où il est descendu pour en prendre possession. Tu lui diras : Ainsi parle l'Éternel : N'es-tu pas un assassin et un voleur ? » (1 Rois 21, versets 17 à 19). **Le tribunal du ciel avait vu ce que le tribunal de la terre avait couvert.** Celui qui s'était emparé de l'héritage d'un juste allait en répondre devant Dieu.
+
+Vous qui avez été dépouillé, ne croyez pas que votre affaire est perdue parce qu'un tribunal humain s'est prononcé contre vous, ou parce que votre adversaire est plus riche et plus puissant que vous. **Aucun verdict de la terre n'est définitif tant que le ciel ne s'est pas prononcé.**
+
 ## Pourquoi le Psaume 94
 
 Lisez le Psaume 94 en entier, et vous comprendrez pourquoi il est le psaume de la justice. Il s'ouvre sur un cri : « Dieu des vengeances, Éternel ! Dieu des vengeances, parais ! Lève-toi, juge de la terre ! Rends aux superbes selon leurs œuvres ! » (Psaume 94, versets 1 et 2).
 
-Il décrit ensuite exactement ce que vivent ceux qui subissent l'injustice : « Ils écrasent ton peuple, ils oppriment ton héritage ; ils égorgent la veuve et l'étranger, ils assassinent les orphelins. Et ils disent : L'Éternel ne regarde pas » (Psaume 94, versets 5 à 7). Puis il pose la question que se pose tout opprimé : « Qui se lèvera pour moi contre les méchants ? Qui me soutiendra contre ceux qui font le mal ? » (Psaume 94, verset 16). Et il y répond : « Mais l'Éternel est ma retraite, mon Dieu est le rocher de mon refuge » (Psaume 94, verset 22).
+Il décrit ensuite exactement ce que vivent ceux qui subissent l'injustice : « Ils écrasent ton peuple, ils oppriment ton héritage ; ils égorgent la veuve et l'étranger, ils assassinent les orphelins. Et ils disent : L'Éternel ne regarde pas » (Psaume 94, versets 5 à 7). C'est le langage de tous les oppresseurs : ils agissent comme si Dieu ne voyait rien. Mais le psaume leur répond aussitôt : « Celui qui a planté l'oreille n'entendrait-il pas ? Celui qui a formé l'œil ne verrait-il pas ? » (Psaume 94, verset 9).
+
+Puis il pose la question que se pose tout opprimé : « Qui se lèvera pour moi contre les méchants ? Qui me soutiendra contre ceux qui font le mal ? » (Psaume 94, verset 16). Et il y répond : « Mais l'Éternel est ma retraite, mon Dieu est le rocher de mon refuge » (Psaume 94, verset 22).
 
 Surtout, il promet : « Car le jugement sera conforme à la justice, et tous ceux dont le cœur est droit l'approuveront » (Psaume 94, verset 15). **Le Psaume 94 ne se contente pas de demander justice. Il l'annonce.**
 
@@ -393,11 +407,11 @@ Mais n'oubliez pas ce que nous avons appris au chapitre 6 : un psaume récité s
 
 La convocation spirituelle se fait **dans la dimension de la nuit**, et non dans celle du soir. Souvenez-vous du découpage des heures appris au chapitre précédent. Il ne suffit pas qu'il fasse noir pour qu'il fasse nuit. En Europe, il fait parfois sombre à huit heures du matin, et il fait parfois encore clair à vingt et une heures. Ce qui compte, ce n'est pas la lumière que vous voyez dehors : ce sont les heures.
 
-**La convocation se fait à partir de minuit vingt, et jusqu'à deux heures cinquante-neuf au plus tard.** Elle ne doit jamais entrer dans trois heures, car à trois heures commence l'aube, qui est une autre dimension. Levez-vous donc au cœur de la nuit, dans ce créneau précis.
+**La convocation se fait à partir de minuit vingt, et jusqu'à deux heures cinquante-neuf au plus tard.** Elle ne doit jamais entrer dans trois heures, car à trois heures commence l'aube, qui est une autre dimension. Levez-vous donc au cœur de la nuit, dans ce créneau précis. C'est l'heure où, nous l'avons vu, le ciel se met en mouvement pendant que la terre dort, l'heure où le tribunal invisible siège.
 
 ### La position
 
-Mettez-vous à genoux, face au soleil levant, c'est-à-dire face à l'est. Prenez votre Bible, quelle que soit sa version, et ouvrez-la au Psaume 94.
+Mettez-vous à genoux, face au soleil levant, c'est-à-dire face à l'est. Ce n'est pas un détail : c'est de l'orient que le prophète Ézéchiel vit venir la présence de Dieu. « Et voici, la gloire du Dieu d'Israël s'avançait de l'orient. Sa voix était pareille au bruit des grandes eaux, et la terre resplendissait de sa gloire » (Ézéchiel 43, verset 2). Prenez votre Bible, quelle que soit sa version, et ouvrez-la au Psaume 94.
 
 ### La parole qui ouvre le psaume
 
@@ -409,7 +423,7 @@ Vous pouvez aussi dire : « Ici et maintenant, par le Saint-Esprit, je fais appe
 
 ### La récitation
 
-Récitez ensuite le Psaume 94 **une fois**, en entier, lentement, avec foi.
+Récitez ensuite le Psaume 94 **une fois**, en entier, lentement, avec foi. Ne le lisez pas comme on lit un journal. Prononcez chaque verset comme une pièce que vous déposez dans votre dossier devant le Juge.
 
 ### La prière
 
@@ -417,7 +431,7 @@ Quand vous avez fini de réciter le psaume, priez. Commencez votre prière par c
 
 > **« Dieu de la vengeance, dans le nom de Jésus-Christ de Nazareth, je te confie cette affaire… »**
 
-Puis nommez l'affaire : l'affaire de votre terrain, l'affaire du tribunal, l'affaire de la garde de vos enfants, l'affaire de la personne qui vous a escroqué. Présentez-la à Dieu clairement. Puis dites-lui comment vous voulez que le litige soit tranché. Dites-lui comment vous voulez que la justice de la terre vous rende justice. **Soyez précis.** La veuve de la parabole ne disait pas à son juge des paroles vagues : elle lui disait exactement ce qu'elle voulait.
+Puis nommez l'affaire : l'affaire de votre terrain, l'affaire du tribunal, l'affaire de la garde de vos enfants, l'affaire de la personne qui vous a escroqué. Présentez-la à Dieu clairement. Puis dites-lui comment vous voulez que le litige soit tranché. Dites-lui comment vous voulez que la justice de la terre vous rende justice. **Soyez précis.** La veuve de la parabole ne disait pas à son juge des paroles vagues : elle lui disait exactement ce qu'elle voulait. Un avocat qui présente un dossier confus perd sa cause, même quand elle est juste.
 
 Terminez votre prière par : « Qu'il en soit ainsi, dans le nom de Jésus. Amen. »
 
@@ -425,11 +439,21 @@ Terminez votre prière par : « Qu'il en soit ainsi, dans le nom de Jésus. Amen
 
 Ce que vous venez de faire constitue un premier cycle : la parole d'ouverture trois fois, le psaume une fois, la prière une fois. **Recommencez ce cycle une deuxième fois, puis une troisième fois.**
 
+Jésus lui-même, dans la nuit de Gethsémané, pria trois fois. Après avoir prié une première et une deuxième fois, « il les quitta, et, s'éloignant, il pria pour la troisième fois, répétant les mêmes paroles » (Matthieu 26, verset 44). La répétition n'est pas un manque de foi. C'est une insistance devant le trône.
+
 Au total, vous aurez donc prononcé la parole d'ouverture neuf fois, récité le Psaume 94 trois fois, et fait votre prière trois fois. À la fin du troisième cycle, déclarez avec assurance : **« C'est fait. »**
+
+Ce ne sont pas des mots ordinaires. Ce sont ceux que Dieu prononce lorsque son œuvre est accomplie : « Et il me dit : C'est fait ! Je suis l'alpha et l'oméga, le commencement et la fin » (Apocalypse 21, verset 6). En les prononçant, vous déclarez que votre cause est désormais entre les mains de celui qui est le commencement et la fin de toute chose.
 
 Puis allez vous reposer. Vous avez porté votre cause devant le Juge. Vous n'avez plus à la porter seul.
 
 > **Trois cycles, neuf paroles, trois récitations, trois prières, puis une seule déclaration : « C'est fait. »**
+
+## Après la convocation
+
+Une fois la convocation faite, ne restez pas les bras croisés. **Continuez les démarches de la terre.** Si vous avez une affaire au tribunal, allez au tribunal. Si vous devez porter plainte, portez plainte. Si vous devez rassembler des documents, rassemblez-les. La convocation spirituelle ne remplace pas les démarches visibles : elle les précède et les accompagne. Ce que vous avez obtenu dans le tribunal invisible doit encore se manifester dans le tribunal visible, et Dieu se sert souvent des juges, des avocats et des procédures de la terre pour exécuter ce qu'il a décidé.
+
+Et soyez patient. La justice de Dieu ne se manifeste pas toujours le lendemain matin. Le prophète Habacuc, qui se plaignait lui aussi de voir les méchants triompher, reçut cette réponse : « Car c'est une prophétie dont le temps est déjà fixé, elle marche vers son terme, et elle ne mentira pas ; si elle tarde, attends-la, car elle s'accomplira, elle s'accomplira certainement » (Habacuc 2, verset 3). **Ce que Dieu a jugé, il l'exécutera, à son heure.**
 
 ## Le Psaume 22, un second psaume de justice
 
@@ -441,15 +465,17 @@ Le mot « vengeance » peut surprendre ou inquiéter certains croyants. Jésus n
 
 La réponse se trouve dans la Parole elle-même. L'apôtre Paul écrit : « Ne vous vengez point vous-mêmes, bien-aimés, mais laissez agir la colère ; car il est écrit : **À moi la vengeance, à moi la rétribution, dit le Seigneur** » (Romains 12, verset 19). Voilà toute la différence. **Le croyant ne se venge pas lui-même. Il remet la vengeance à Dieu.** Il ne prend pas les armes, il ne paie pas un féticheur, il ne cherche pas à faire du mal à celui qui l'a offensé. Il porte sa cause devant le seul Juge qui juge avec justice, et il le laisse agir.
 
+C'est exactement ce que fit Jésus lui-même. L'apôtre Pierre écrit de lui : « Lui qui, injurié, ne rendait point d'injures, maltraité, ne faisait point de menaces, mais **s'en remettait à celui qui juge justement** » (1 Pierre 2, verset 23). Le Fils de Dieu, accusé injustement, condamné injustement, ne s'est pas défendu par la violence. Il a remis sa cause au Père. Et le Père l'a ressuscité.
+
 C'est précisément ce que fait la convocation spirituelle. Vous ne demandez pas la mort de votre adversaire. **Vous demandez que justice soit rendue, que le droit soit dit et que ce qui vous a été pris vous soit restitué.** David l'avait compris : « Recommande ton sort à l'Éternel, mets en lui ta confiance, et il agira. Il fera paraître ta justice comme la lumière, et ton droit comme le soleil à son midi » (Psaume 37, versets 5 et 6).
 
-Et n'oubliez jamais que le tribunal de Dieu juge aussi celui qui l'invoque. Celui qui porte devant Dieu une cause injuste, celui qui veut utiliser le Psaume 94 pour arracher ce qui ne lui appartient pas, se convoque lui-même devant le Juge. **Ne présentez à Dieu que des causes justes.** Le Psaume 94 le dit : « tous ceux dont le cœur est droit l'approuveront. »
+Et n'oubliez jamais que le tribunal de Dieu juge aussi celui qui l'invoque. Celui qui porte devant Dieu une cause injuste, celui qui veut utiliser le Psaume 94 pour arracher ce qui ne lui appartient pas, se convoque lui-même devant le Juge. Achab avait gagné son procès contre Naboth sur la terre ; il l'a perdu dans le ciel. **Ne présentez à Dieu que des causes justes.** Le Psaume 94 le dit : « tous ceux dont le cœur est droit l'approuveront. »
 
 ## Les codes des grands
 
 Ce que je viens de vous transmettre, vous ne le trouverez pas facilement ailleurs. Beaucoup de serviteurs de Dieu connaissent des codes de ce genre. Quand vous allez voir un homme de Dieu avec un problème et qu'il vous dit : « Nous allons travailler sur cette affaire », sachez qu'il connaît souvent des clés semblables, des prières qui ne manquent pas leur cible. Mais il ne les donne pas. Ce sont les codes des grands.
 
-Je vous les donne, parce que je crois que chaque enfant de Dieu doit pouvoir porter lui-même sa cause devant son Père. **Celui qui appliquera fidèlement cette méthode, avec foi et avec un cœur droit, verra le résultat.**
+Je vous les donne, parce que je crois que chaque enfant de Dieu doit pouvoir porter lui-même sa cause devant son Père. Vous n'avez pas besoin d'être riche pour obtenir justice. Vous n'avez pas besoin de connaître un ministre ou un juge. La veuve de la parabole n'avait rien de tout cela. Elle avait une cause juste et elle ne s'est pas tue. **Celui qui appliquera fidèlement cette méthode, avec foi et avec un cœur droit, verra le résultat.**
 
 ---
 
@@ -458,26 +484,29 @@ Je vous les donne, parce que je crois que chaque enfant de Dieu doit pouvoir por
 **Pour réfléchir**
 
 1. Relisez la parabole de la veuve et du juge (Luc 18, versets 1 à 8). Qu'est-ce qui a permis à la veuve d'obtenir justice ? Que vous apprend cette histoire sur la manière de porter une cause devant Dieu ?
-2. Que révèlent Daniel 7, verset 10, et Zacharie 3, verset 1, sur l'existence d'un tribunal dans le monde spirituel ?
-3. Pourquoi les complots de l'ennemi ont-ils besoin d'un verdict ? Que se passe-t-il si personne ne plaide pour vous ?
-4. Quelle différence y a-t-il entre se venger soi-même et remettre la vengeance à Dieu (Romains 12, verset 19) ?
-5. Pourquoi faut-il ne présenter à Dieu que des causes justes ?
+2. Que révèlent Job 1, versets 6 à 11, et 1 Rois 22, versets 19 à 22, sur le conseil céleste où se plaident et se décident les affaires des hommes ?
+3. Pourquoi les complots de l'ennemi ont-ils besoin d'un verdict ? Que signifie pour vous le fait d'avoir « un avocat auprès du Père » (1 Jean 2, verset 1) ?
+4. Que vous apprend l'histoire de Naboth (1 Rois 21) sur les verdicts injustes de la terre ?
+5. Quelle différence y a-t-il entre se venger soi-même et remettre la vengeance à Dieu (Romains 12, verset 19 ; 1 Pierre 2, verset 23) ?
+6. Pourquoi faut-il continuer les démarches de la terre après la convocation spirituelle ?
 
 **Pour pratiquer**
 
 1. **Lisez le Psaume 94 en entier**, lentement, trois jours de suite. Soulignez dans votre Bible les versets qui correspondent le plus à votre situation.
-2. **Préparez votre cause.** Si vous êtes engagé dans un litige, écrivez dans votre cahier, en quelques lignes claires, de quoi il s'agit, ce qui vous a été pris ou refusé, et comment vous voulez que l'affaire soit tranchée. Relisez-le et demandez-vous honnêtement si votre cause est juste.
+2. **Préparez votre dossier.** Si vous êtes engagé dans un litige, écrivez dans votre cahier, en quelques lignes claires, de quoi il s'agit, ce qui vous a été pris ou refusé, et comment vous voulez que l'affaire soit tranchée. Relisez-le et demandez-vous honnêtement si votre cause est juste.
 3. **Recopiez la méthode** de la convocation sur une page de votre cahier : l'heure, la position, la parole d'ouverture, la récitation, la prière, les trois cycles, la déclaration finale.
-4. **Faites la convocation.** Choisissez une nuit, levez-vous après minuit vingt, et pratiquez les trois cycles avant trois heures. Notez la date dans votre cahier. Puis notez, dans les semaines qui suivent, tout ce qui évolue dans votre affaire.
+4. **Faites la convocation.** Choisissez une nuit, levez-vous après minuit vingt, et pratiquez les trois cycles avant trois heures. Notez la date dans votre cahier.
+5. **Suivez votre affaire.** Dans les semaines qui suivent, poursuivez les démarches de la terre et notez dans votre cahier tout ce qui évolue. Si la réponse tarde, relisez Habacuc 2, verset 3.
 
 ## Ce qu'il faut retenir
 
-- **Il existe un tribunal dans le monde spirituel**, avec des trônes, des juges, des livres ouverts et un accusateur (Daniel 7, verset 10 ; Zacharie 3, verset 1).
-- **Les complots de l'ennemi ont besoin d'un verdict.** La convocation spirituelle consiste à porter soi-même sa cause devant Dieu.
+- **Il existe un tribunal dans le monde spirituel**, avec des trônes, des juges, des livres ouverts et un accusateur (Daniel 7, verset 10 ; Job 1, verset 6 ; Zacharie 3, verset 1). Les décisions s'y prennent avant de s'exécuter sur la terre.
+- **Les complots de l'ennemi ont besoin d'un verdict.** Mais le croyant a un avocat auprès du Père, Jésus-Christ le juste (1 Jean 2, verset 1).
+- **Aucun verdict de la terre n'est définitif tant que le ciel ne s'est pas prononcé**, comme le montre l'histoire de Naboth.
 - **Le Psaume 94 est le psaume de la justice** : « le jugement sera conforme à la justice » (verset 15). Le Psaume 22 peut aussi être utilisé.
 - **La méthode** : entre minuit vingt et deux heures cinquante-neuf ; à genoux, face à l'est, la Bible ouverte ; trois fois « Ici et maintenant, par l'Esprit de Dieu, je fais appel à la puissance de ce Psaume 94 » ; le psaume une fois ; la prière « Dieu de la vengeance, dans le nom de Jésus-Christ de Nazareth, je te confie cette affaire… » ; trois cycles ; puis « C'est fait ».
-- **Le croyant ne se venge pas lui-même. Il remet la vengeance à Dieu** (Romains 12, verset 19). Il demande justice, non la mort de son adversaire.
-- **Ne présentez à Dieu que des causes justes.**
+- **Après la convocation, continuez les démarches de la terre, et soyez patient** (Habacuc 2, verset 3).
+- **Le croyant ne se venge pas lui-même. Il remet sa cause à Dieu**, comme Jésus qui « s'en remettait à celui qui juge justement ». Il demande justice, non la mort de son adversaire. **Ne présentez à Dieu que des causes justes.**
 
 ## Vers le chapitre 9
 

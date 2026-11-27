@@ -419,3 +419,12 @@
   2 Chroniques 5, 13-14 ; Psaume 121, 6 ; Genèse 32, 24-26 ;
   Jérémie 1, 10 ; Ecclésiaste 3, 3.
 - Listes de psaumes inchangées ; toujours à faire confirmer par l'auteur.
+
+## 27 novembre 2026 — chapitre 7 réécrit VALIDÉ ; chapitre 8 réécrit
+
+- Chapitre 8 réécrit en entier (environ 4 400 mots). Ajouts vérifiés en
+  Louis Segond 1910 : Job 1, 6-11 ; 1 Rois 22, 19-22 ; 1 Jean 2, 1 ;
+  1 Rois 21, 1-19 (Naboth) ; Psaume 94, 9 ; Ézéchiel 43, 2 ;
+  Matthieu 26, 44 ; Apocalypse 21, 6 ; Habacuc 2, 3 ; 1 Pierre 2, 23.
+- Ajout fidèle à l'auteur (vidéo 08 : « Et puis, va à la justice ») :
+  continuer les démarches de la terre après la convocation.
