@@ -185,3 +185,14 @@
   restent valables.
 - Conséquence : les titres des parties, calqués sur l'ancien
   sous-titre, sont à réaligner. En attente du choix de Joseph.
+
+## 27 novembre 2026 — titre et parties validés
+
+- Titre retenu : « À LA DÉCOUVERTE DES SECRETS ET CODES DU MONDE
+  SPIRITUEL — Comprendre, pratiquer et prier pour impacter le physique
+  par le spirituel ».
+- Parties : Comprendre le monde spirituel / Pratiquer : posséder son
+  territoire / Prier : la clé et le pouvoir des Psaumes / Consacrer :
+  la mystique de la dîme.
+- Chapitre 1 : la formule « impacter le physique par le spirituel »
+  remise, pour correspondre au titre.

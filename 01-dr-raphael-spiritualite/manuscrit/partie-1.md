@@ -1,4 +1,4 @@
-# PARTIE 1 — COMPRENDRE POUR POSSÉDER
+# PARTIE 1 — COMPRENDRE LE MONDE SPIRITUEL
 
 > « Mon peuple est détruit, parce qu'il lui manque la connaissance. »
 > **Osée 4, verset 6**
@@ -26,7 +26,7 @@ Les deux hommes regardaient la même montagne. L'un y voyait une armée ennemie 
 
 Ce serviteur n'était pourtant pas un homme éloigné de Dieu. Il servait un prophète et vivait chaque jour au contact des œuvres de Dieu. Mais au moment décisif, il a été saisi de panique, parce que ses yeux ne voyaient que ce qui se voit. Combien de croyants lui ressemblent ! Ils prient, ils jeûnent, ils ne manquent aucun culte. Mais dès que l'épreuve encercle leur maison, leur commerce ou leur santé, ils reprennent son cri : « Comment ferons-nous ? » Ils ignorent que la montagne est pleine. Ils ignorent que l'issue du combat se décide ailleurs.
 
-C'est la raison d'être de ce livre : **vous apprendre à agir sur le monde visible à partir du monde invisible.** Ce qui arrive dans votre corps, dans votre famille, dans votre travail et dans vos finances se prépare d'abord dans un monde que vos yeux ne voient pas. Celui qui connaît ce monde peut gouverner sa vie. Celui qui l'ignore se contente de subir ce qui lui arrive.
+C'est la raison d'être de ce livre : **vous apprendre à impacter le physique par le spirituel**, c'est-à-dire à agir sur le monde visible à partir du monde invisible. Ce qui arrive dans votre corps, dans votre famille, dans votre travail et dans vos finances se prépare d'abord dans un monde que vos yeux ne voient pas. Celui qui connaît ce monde peut gouverner sa vie. Celui qui l'ignore se contente de subir ce qui lui arrive.
 
 > **Ce que vous vivez dans le visible s'est d'abord décidé dans l'invisible.**
 

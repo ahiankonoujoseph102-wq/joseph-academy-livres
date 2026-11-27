@@ -1,8 +1,13 @@
 # Plan du tome 1 en 12 chapitres — proposition du 26 novembre 2026
 
-**Titre retenu (26 novembre 2026) :** *Les codes du monde spirituel —
-Comprendre, posséder, prier, consacrer*. Parties : Comprendre pour
-posséder / Posséder pour prier / Prier pour agir / Consacrer pour multiplier.
+**Titre retenu (27 novembre 2026, voulu par l'auteur) :**
+*À LA DÉCOUVERTE DES SECRETS ET CODES DU MONDE SPIRITUEL — Comprendre,
+pratiquer et prier pour impacter le physique par le spirituel.* Livre
+chrétien. **Option 2 validée.** Parties : 1. Comprendre le monde
+spirituel (chapitres 1 à 4) ; 2. Pratiquer : posséder son territoire
+(chapitre 5) ; 3. Prier : la clé et le pouvoir des Psaumes (chapitres 6
+à 10) ; 4. Consacrer : la mystique de la dîme (chapitres 11 et 12).
+Chapitre 1 retitré « Le visible vient de l'invisible ».
 
 Demande de Joseph : 12 chapitres au plus (le plan de SYNTHESE.md en
 avait 16). Les codes A1 à G11 renvoient à SYNTHESE.md, partie 2.

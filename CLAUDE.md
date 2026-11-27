@@ -240,16 +240,22 @@ seulement ensuite rédiger.
   Ordre réel, enseignements fusionnés,
   psaumes, creux, plan en 16 chapitres,
   verdict : un seul livre.
-- Rien n'est rédigé.
 - Réponses de l'auteur reçues (vidéos 12 à
   14) : analyse/REPONSES-AUTEUR.md.
 - Un tome par session de masterclass.
-  Tome 1 = session 1 (plan en 16 chapitres).
+  Tome 1 = session 1 : plan en 12 chapitres
+  (analyse/PLAN-TOME-1.md, option 2).
+- Titre : À LA DÉCOUVERTE DES SECRETS ET
+  CODES DU MONDE SPIRITUEL — Comprendre,
+  pratiquer et prier pour impacter le
+  physique par le spirituel.
+- Style : voir NOTES.md (modèle Marcello,
+  pas de numérotation, jamais de mention
+  de masterclass). Chapitre 1 validé.
   Sessions 2 et 3 : l'auteur les enverra.
 - En attente : le pourquoi des psaumes, son
   livre Le Pouvoir des prières mystiques.
-- Prochaine étape : Joseph valide le plan du
-  tome 1. Ne pas rédiger avant.
+- Rédaction en cours : manuscrit/partie-1.md.
 
 ### 02 — Fatoumata Binta Bah, cosmétiques (EN ATTENTE)
 
