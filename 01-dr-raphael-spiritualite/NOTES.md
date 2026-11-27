@@ -612,3 +612,10 @@ Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
   spirituel reste ouverte. Il promet d'envoyer le reste.
 - Pas encore de réponse : à propos de l'auteur, Psaume 23, Psaume 1,
   verset sur l'eau.
+
+## 27 novembre 2026 — nom du père spirituel
+
+- Joseph confirme l'orthographe : **Wilfried Zahui** (révérend et
+  prophète, connu publiquement). À utiliser dans les remerciements.
+- Toujours en attente de Joseph : le sens de « l'auto-dédicace » et le
+  choix pour la préface.
