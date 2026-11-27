@@ -196,3 +196,9 @@
   la mystique de la dîme.
 - Chapitre 1 : la formule « impacter le physique par le spirituel »
   remise, pour correspondre au titre.
+
+## 27 novembre 2026 — chapitre 1 mis à jour validé (« OK »)
+
+- Chapitre 2 aligné sur le nouveau titre (renvoi à la partie
+  « pratique », mention des « codes du monde spirituel »). Renvoyé à
+  Joseph pour validation.

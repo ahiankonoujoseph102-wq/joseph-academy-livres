@@ -206,7 +206,7 @@ Il en va de même des ambassades. Chaque pays a, dans les autres pays, une ambas
 
 > **Quand vous passez une frontière, vous ne traversez pas une seule limite. Vous en traversez deux : celle que l'on voit, et celle que l'on ne voit pas.**
 
-Cette connaissance a une conséquence très pratique. Lorsque vous voyagez, lorsque vous descendez d'un avion à Paris, à Montréal ou à Abidjan, lorsque vous quittez votre ville pour vous installer dans une autre, vous n'entrez pas sur une terre neutre. Vous entrez sur un territoire qui a déjà ses maîtres. Vous devrez y affronter des réalités spirituelles que vous ne connaissez pas. C'est pourquoi la Bible donne cette promesse à ceux qui entrent dans un pays nouveau : « Tout lieu que foulera la plante de votre pied, je vous le donne » (Josué 1, verset 3). Dieu ne la donne pas par hasard. Il la donne parce que chaque lieu est déjà gouverné, et qu'il faut en prendre possession. Je vous enseignerai, dans la deuxième partie de ce livre, ce qu'il faut faire au moment précis où vos pieds touchent le sol d'un nouveau territoire.
+Cette connaissance a une conséquence très pratique. Lorsque vous voyagez, lorsque vous descendez d'un avion à Paris, à Montréal ou à Abidjan, lorsque vous quittez votre ville pour vous installer dans une autre, vous n'entrez pas sur une terre neutre. Vous entrez sur un territoire qui a déjà ses maîtres. Vous devrez y affronter des réalités spirituelles que vous ne connaissez pas. C'est pourquoi la Bible donne cette promesse à ceux qui entrent dans un pays nouveau : « Tout lieu que foulera la plante de votre pied, je vous le donne » (Josué 1, verset 3). Dieu ne la donne pas par hasard. Il la donne parce que chaque lieu est déjà gouverné, et qu'il faut en prendre possession. Je vous enseignerai, dans la deuxième partie de ce livre, consacrée à la pratique, ce qu'il faut faire au moment précis où vos pieds touchent le sol d'un nouveau territoire.
 
 Mais l'autorité des esprits ne s'exerce pas seulement à l'échelle des pays. Elle descend jusqu'au seuil de votre maison.
 
@@ -262,7 +262,7 @@ Je ne vous dis pas cela pour que vous viviez dans la peur. Je vous le dis pour q
 
 Il y a une grande différence entre habiter un lieu et le posséder. Le serviteur d'Élisée habitait Dothan, mais c'est Élisée qui en connaissait les armées invisibles. Les habitants de Gadara vivaient près des tombeaux, mais c'est Jésus qui, en un mot, a libéré leur territoire.
 
-Désormais, vous savez que votre pays a son esprit, que votre quartier a ses lieux de décision, que votre église et votre maison ont chacune un esprit à leur porte. Cette connaissance vous place devant un choix. Vous pouvez continuer à vivre sur ces territoires comme un locataire qui ignore les règles de la maison. Ou vous pouvez apprendre à y entrer, à vous y faire reconnaître et à y exercer l'autorité que le Christ vous a donnée.
+Désormais, vous savez que votre pays a son esprit, que votre quartier a ses lieux de décision, que votre église et votre maison ont chacune un esprit à leur porte. Ce sont là les premiers codes du monde spirituel : savoir qui gouverne, où il gouverne, et jusqu'où s'étend son autorité. Cette connaissance vous place devant un choix. Vous pouvez continuer à vivre sur ces territoires comme un locataire qui ignore les règles de la maison. Ou vous pouvez apprendre à y entrer, à vous y faire reconnaître et à y exercer l'autorité que le Christ vous a donnée.
 
 ---
 
