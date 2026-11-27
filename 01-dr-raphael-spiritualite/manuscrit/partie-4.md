@@ -1,4 +1,4 @@
-# QUATRIÈME PARTIE — CONSACRER : LA MYSTIQUE DE LA DÎME
+# PARTIE 4 — CONSACRER : LA MYSTIQUE DE LA DÎME
 
 > « Apportez à la maison du trésor toutes les dîmes, afin qu'il y ait de la nourriture dans ma maison ; mettez-moi de la sorte à l'épreuve, dit l'Éternel des armées. Et vous verrez si je n'ouvre pas pour vous les écluses des cieux, si je ne répands pas sur vous la bénédiction en abondance. »
 > **Malachie 3, verset 10**

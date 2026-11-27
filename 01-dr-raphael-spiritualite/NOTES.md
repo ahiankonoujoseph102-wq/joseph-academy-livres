@@ -529,3 +529,16 @@
 - **Le corps du tome 1 est terminé : chapitres 1 à 12 validés.**
 - Reste : pages d'ouverture, conclusion, annexes, à propos de l'auteur,
   quatrième de couverture, export Word A5.
+
+## 27 novembre 2026 — introduction et « Comment utiliser ce livre » rédigés (en attente)
+
+- Nouveau fichier manuscrit/ouverture.md. Ouverture sur Exode 7, 8-12 et
+  8, 14-15 (les magiciens de Pharaon).
+- Versets vérifiés : Exode 7, 8-13 ; 8, 14-15 ; Deutéronome 29, 29 ;
+  Luc 16, 8 ; 1 Chroniques 12, 32 ; Jacques 1, 22.
+- « Ce que ce livre n'est pas » : pas de magie, ne remplace pas le nom de
+  Jésus, n'apprend jamais à nuire (cohérent avec les retraits faits).
+- Version de la Bible annoncée : Louis Segond 1910 (l'auteur lit la TOB,
+  question toujours ouverte).
+- Titre de la partie 4 harmonisé : « PARTIE 4 — » comme les autres.
+- Dédicace, préface, remerciements : en attente des informations de l'auteur.
