@@ -259,3 +259,29 @@
   Genèse 1, 9-10 ; 2 Rois 2, 19-22 ; Marc 11, 23-24 (cité par
   l'auteur) ; Proverbes 19, 17 ; Jacques 1, 27 ; 2 Samuel 24, 24 ;
   Exode 20, 5.
+
+## 27 novembre 2026 — chapitre 5 VALIDÉ (« OK »), phrase ajoutée gardée.
+
+## 27 novembre 2026 — chapitre 6 rédigé, en attente de validation
+
+- manuscrit/partie-3.md : ouverture de la partie 3 et chapitre 6 « Les
+  psaumes et les clés de leur puissance » (vidéos 06, 07, 08, 13).
+- **Saints noms : choix 1 respecté.** Le principe est expliqué avec des
+  noms de Dieu tirés de la Bible (Jehova-Jiré, l'Éternel qui guérit,
+  l'Éternel ma bannière, l'Éternel paix). Aucune correspondance
+  « psaume = saint nom » n'est donnée. « Jéhovah Saint » trois fois,
+  nom universel (vidéo 06), est donné.
+- « Formule incantatoire » (mot de l'auteur) reformulé : les psaumes
+  sont pour les enfants de Dieu ce que les formules sont pour les
+  ténèbres, avec une puissance supérieure.
+- Troisième clé : l'auteur la retient (vidéo 13). Le texte le dit.
+- Laissés de côté : « 300 psaumes canonisés », « psaumes 151 à 161 » et
+  « plus dangereux » ; prières de mort à la pleine lune ; les quatre
+  éléments, les quatre anges (dont Uriel) et le chiffre 16 ; le Cantique
+  des Cantiques (annoncé pour une autre session).
+- Versets ajoutés, vérifiés en Louis Segond 1910 : Colossiens 3, 16 ;
+  Hébreux 4, 12 ; Actes 16, 22-26 ; 2 Chroniques 20, 21-22 ;
+  Psaumes 90, 1 ; 72, 1, 10 et 15 ; 89, 1 ; 31, 6 ; Luc 24, 44 ;
+  Matthieu 27, 46 ; Luc 23, 46 ; Genèse 22, 14 ; Exode 15, 23-26 ;
+  Exode 17, 15 ; Juges 6, 22-24 ; Proverbes 18, 10 ; Exode 3, 15 ;
+  Ésaïe 6, 3.
