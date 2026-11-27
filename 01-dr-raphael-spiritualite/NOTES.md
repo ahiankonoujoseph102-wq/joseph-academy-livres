@@ -151,3 +151,9 @@
   le spirituel » devient « agir sur le monde visible à partir du monde
   invisible ». « Je parle à quelqu'un » (tic oral) retiré.
 - Ouverture de la partie 1 réécrite autour d'Osée 4, verset 6.
+
+## 27 novembre 2026 — chapitre 1 VALIDÉ
+
+- Joseph valide la troisième version du chapitre 1.
+- Témoignage de la voiture sans conducteur : gardé pour l'instant,
+  Joseph n'a pas tranché.
