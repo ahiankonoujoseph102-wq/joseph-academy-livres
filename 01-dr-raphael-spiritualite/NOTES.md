@@ -410,3 +410,12 @@
   Philippiens 2, 9-10 ; Actes 3, 6 ; Genèse 16, 13 ; Genèse 17, 1 ;
   Josué 6, 15-16 ; 1 Rois 18, 42-44 ; Jean 16, 12 ; Proverbes 25, 2.
   Vérifiés en Louis Segond 1910. Image ajoutée : la clé de voiture.
+
+## 27 novembre 2026 — chapitre 6 enrichi VALIDÉ ; chapitre 7 réécrit
+
+- Chapitre 7 réécrit en entier (environ 4 400 mots). Ajouts vérifiés en
+  Louis Segond 1910 : Lévitique 23, 32 ; Lamentations 2, 19 ; Exode 12,
+  29 et 14, 24 ; Matthieu 14, 25 ; Psaume 46, 6 ; Esther 4, 16 ;
+  2 Chroniques 5, 13-14 ; Psaume 121, 6 ; Genèse 32, 24-26 ;
+  Jérémie 1, 10 ; Ecclésiaste 3, 3.
+- Listes de psaumes inchangées ; toujours à faire confirmer par l'auteur.
