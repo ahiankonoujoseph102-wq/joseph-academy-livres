@@ -495,3 +495,9 @@
   (adouci, appuyé sur 1 Corinthiens 6, 16).
 - Reporté au chapitre 12 : consécration, à qui donner, dîme de la dîme,
   esprits opposants, les 90 %, l'exemple de la saison (janvier, mars).
+
+## 27 novembre 2026 — chapitre 11 VALIDÉ (« 1, ok, 2 »)
+
+- Passage sur les relations intimes et le dévoreur : **gardé adouci**.
+- Monnaie : **francs CFA** (100 000 francs de bénéfice, 10 000 francs de
+  dîme) au lieu des euros de l'auteur. Règle à suivre pour le reste du livre.

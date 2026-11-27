@@ -76,9 +76,9 @@ Beaucoup de croyants me disent : « Je paie la dîme, mais je ne vois aucun rés
 
 **La dîme, ce n'est pas n'importe quel dixième. C'est le premier dixième.** C'est la part que vous prélevez sur votre gain avant toute autre dépense.
 
-Prenons un exemple. Vous faites un bénéfice de 1 000 euros dans le mois. Je dis bien le bénéfice, ce que vous avez gagné, et non le capital que vous avez investi. La dîme de ce bénéfice est de 100 euros. Si, dès que vous recevez ces 1 000 euros, vous mettez d'abord de côté les 100 euros pour Dieu, puis vous faites vos dépenses avec le reste, **vous avez payé la dîme.**
+Prenons un exemple. Vous faites un bénéfice de 100 000 francs CFA dans le mois. Je dis bien le bénéfice, ce que vous avez gagné, et non le capital que vous avez investi. La dîme de ce bénéfice est de 10 000 francs. Si, dès que vous recevez ces 100 000 francs, vous mettez d'abord de côté les 10 000 francs pour Dieu, puis vous faites vos dépenses avec le reste, **vous avez payé la dîme.**
 
-Mais si vous recevez ces 1 000 euros, que vous allez faire vos courses, régler votre loyer, payer vos factures, et qu'à la fin du mois vous prenez 100 euros dans ce qui reste pour les donner à l'église, **ce n'est plus une dîme. C'est une offrande.** Le montant est le même. Le geste n'est pas le même. Dans le premier cas, Dieu passe en premier. Dans le second, il reçoit ce qui reste après tous les autres.
+Mais si vous recevez ces 100 000 francs, que vous allez faire vos courses, régler votre loyer, payer vos factures, et qu'à la fin du mois vous prenez 10 000 francs dans ce qui reste pour les donner à l'église, **ce n'est plus une dîme. C'est une offrande.** Le montant est le même. Le geste n'est pas le même. Dans le premier cas, Dieu passe en premier. Dans le second, il reçoit ce qui reste après tous les autres.
 
 L'Écriture le dit depuis toujours : « Honore l'Éternel avec tes biens, et avec **les prémices** de tout ton revenu : alors tes greniers seront remplis d'abondance, et tes cuves regorgeront de moût » (Proverbes 3, versets 9 et 10). Les prémices, ce sont les premiers fruits, ceux que l'on cueille avant tous les autres. Dieu ne demande pas les restes. **Il demande la première part, parce que la première part dit qui est le premier dans votre vie.**
 
@@ -156,7 +156,7 @@ Vous verrez que cette discipline change tout. La dîme n'est plus une grosse som
 2. Qu'a de particulier le vœu de Jacob (Genèse 28, versets 20 à 22) quand on sait ce qu'il possédait à ce moment-là ?
 3. Pourquoi la dîme ne peut-elle pas être réduite à la loi de Moïse (Galates 3, verset 17) ? Que dit Jésus de la dîme en Matthieu 23, verset 23 ?
 4. Que signifie l'expression « dit l'Éternel des armées » à la fin des promesses de Malachie ?
-5. Expliquez avec vos propres mots la différence entre la dîme et l'offrande. Pourquoi 100 euros donnés à la fin du mois ne sont-ils pas forcément une dîme ?
+5. Expliquez avec vos propres mots la différence entre la dîme et l'offrande. Pourquoi 10 000 francs donnés à la fin du mois ne sont-ils pas forcément une dîme ?
 6. Pourquoi ne peut-on pas utiliser sa dîme pour une bonne œuvre, même pour nourrir des orphelins (Lévitique 27, verset 30) ?
 7. Expliquez l'image de la bile. Que représente le « sac percé » d'Aggée 1, verset 6 ?
 
