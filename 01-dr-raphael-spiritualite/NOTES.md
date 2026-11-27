@@ -89,3 +89,15 @@
 - **Plan : option 2 validée** (analyse/PLAN-TOME-1.md).
 - **Saints noms : choix 1** — expliquer le principe, sans donner la liste.
 - Prochaine étape : rédaction du chapitre 1.
+
+## 27 novembre 2026 — chapitre 1 rédigé, en attente de validation
+
+- manuscrit/partie-1.md : ouverture de la partie 1 et chapitre 1.
+- Versets cités dans la Louis Segond 1910 (texte vérifié). **L'auteur
+  lit dans la TOB** (« version taube », vidéo 02). Version à confirmer
+  avec lui avant la mise en page.
+- Points laissés de côté : « yin et yang » (vidéo 01), les Chinois et
+  Indiens qui « négocient avec les esprits » (vidéo 02), « Dieu n'est
+  pas chrétien » (vidéo 06).
+- Points gardés, à confirmer par Joseph : les routes tracées par les
+  esprits et le témoignage de la voiture sans conducteur.
