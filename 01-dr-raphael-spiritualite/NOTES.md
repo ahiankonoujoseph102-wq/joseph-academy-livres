@@ -575,3 +575,22 @@
 - Le témoignage de la voiture sans conducteur n'est plus dans le
   manuscrit (disparu lors de la réécriture du chapitre 1) : question retirée.
 - La quatrième de couverture n'a pas reçu de « OK » explicite.
+
+## 27 novembre 2026 — message à l'auteur raccourci (décisions de Joseph)
+
+- Ne pas dire au Dr Raphaël que le livre est terminé : Joseph veut lui
+  faire la surprise.
+- Retirés du message : l'origine du titre de « Docteur » (ne jamais
+  l'écrire), la version de la Bible (Louis Segond 1910 gardée), les listes
+  de psaumes et la deuxième liste du soir (l'auteur relira le livre avant
+  publication), le cinquième lieu (laissé tel quel), les deux passages
+  ajoutés (déjà acceptés par l'auteur), les sessions 2 et 3, son livre
+  existant, le pourquoi des psaumes.
+- Gardés : dédicace, remerciements, préface, à propos de l'auteur,
+  orthographe du nom du père spirituel (homme connu, que Joseph connaît),
+  Psaume 23 à l'aube, Psaume 1 et l'eau, verset sur l'eau.
+- Préface : possibilité 2 retenue (avant-propos au nom de l'auteur, plus
+  une préface si quelqu'un l'écrit).
+- Pourquoi des psaumes : Joseph demande de l'expliquer moi-même si besoin.
+  Limite : je relie un psaume à son usage seulement par ce que dit son
+  texte vérifié, jamais par une raison inventée au nom de l'auteur.
