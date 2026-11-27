@@ -255,7 +255,12 @@ seulement ensuite rédiger.
   Sessions 2 et 3 : l'auteur les enverra.
 - En attente : le pourquoi des psaumes, son
   livre Le Pouvoir des prières mystiques.
-- Rédaction en cours : manuscrit/partie-1.md.
+- Corps du tome 1 terminé et validé (27 novembre
+  2026) : chapitres 1 à 12, manuscrit/partie-1.md
+  à partie-4.md. Monnaie des exemples : francs CFA.
+- Reste : pages d'ouverture, conclusion,
+  annexes, à propos de l'auteur, quatrième de
+  couverture, export Word A5.
 
 ### 02 — Fatoumata Binta Bah, cosmétiques (EN ATTENTE)
 

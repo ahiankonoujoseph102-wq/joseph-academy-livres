@@ -521,3 +521,11 @@
 - Exemple de la saison (janvier, mars) gardé sans chiffres en euros.
 - « Je peux le prouver bibliquement » (l'eau à l'église) : aucun verset
   donné par l'auteur, donc aucun verset ajouté.
+
+## 27 novembre 2026 — chapitre 12 VALIDÉ (« OK »)
+
+- Bouteille d'eau à l'église : gardée comme conseil de l'auteur, sans verset
+  (option 1, choix par défaut puisque Joseph n'a pas précisé).
+- **Le corps du tome 1 est terminé : chapitres 1 à 12 validés.**
+- Reste : pages d'ouverture, conclusion, annexes, à propos de l'auteur,
+  quatrième de couverture, export Word A5.
