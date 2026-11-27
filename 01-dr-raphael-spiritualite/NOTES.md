@@ -351,3 +351,17 @@
   Zacharie 2, 5 ; Apocalypse 12, 11 ; 1 Samuel 24, 3-4 ; Psaume 91,
   1, 5, 10-11 ; Psaume 27, 1-2 ; Psaume 35, 1-2 ; Psaume 23, 5 ;
   Jacques 5, 14.
+
+## 27 novembre 2026 — chapitres trop courts : avis de Joseph
+
+- Joseph : les chapitres raccourcissent au fil du livre ; il veut le
+  rythme du chapitre 1 partout et propose de « tout reprendre à zéro ».
+- Mesure faite (mots) : ch. 1 : 4 383 ; ch. 2 : 3 495 ; ch. 3 : 3 470 ;
+  ch. 4 : 3 924 ; ch. 5 : 3 636 ; ch. 6 : 3 180 ; ch. 7 : 2 578 ;
+  ch. 8 : 2 543 ; ch. 9 : 2 892.
+- **Avis : constat juste (surtout chapitres 7 à 9), mais tout reprendre
+  à zéro est inutile.** Proposition : réécrire 7, 8 et 9 en entier,
+  enrichir 2, 3, 5 et 6, au niveau du chapitre 1 (environ 4 300 mots).
+- **Alerte pages :** 12 chapitres à 4 300 mots, plus les pages
+  d'ouverture et de fin, donnent environ 190 à 200 pages A5, au bord de
+  la limite de 200 pages fixée par Joseph. En attente de son choix.
