@@ -83,3 +83,9 @@
   multiplier.
 - **Un exercice à la fin de chaque chapitre** : déjà prévu par la
   rubrique « Faites le point » (CLAUDE.md, section 7). Confirmé.
+
+## 27 novembre 2026 — plan et saints noms validés
+
+- **Plan : option 2 validée** (analyse/PLAN-TOME-1.md).
+- **Saints noms : choix 1** — expliquer le principe, sans donner la liste.
+- Prochaine étape : rédaction du chapitre 1.
