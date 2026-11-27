@@ -550,3 +550,9 @@
   Josué 1, 9 ; Nombres 6, 24-26.
 - Annonce du tome 2 limitée à ce que dit la source (vidéo 11) : le mystère
   de l'argent.
+
+## 27 novembre 2026 — conclusion VALIDÉE (« OK ») ; annexes rédigées (en attente)
+
+- Annexes ajoutées à la fin de manuscrit/fin.md : heures, psaumes de chaque
+  moment, psaumes selon le besoin, pratiques et leurs heures. Tout est tiré
+  des chapitres validés, rien d'ajouté.

@@ -65,3 +65,83 @@ Avant de vous laisser partir, je veux prononcer sur vous la bénédiction que Di
 Que vos yeux s'ouvrent sur le monde invisible. Que votre territoire vous reconnaisse. Que vos prières traversent le ciel. Que votre dîme ouvre sur vous les écluses des cieux. Et que tout ce que vous entreprendrez dans la crainte de Dieu prospère entre vos mains.
 
 **Au nom de Jésus. Amen.**
+
+---
+
+# Annexes
+
+Ces tableaux rassemblent ce qui est enseigné dans le livre. Ils servent à retrouver vite un psaume ou une heure. **Ils ne remplacent pas le chapitre concerné** : avant de pratiquer, relisez toujours la méthode complète au chapitre indiqué.
+
+## Annexe 1 — Les heures dans le monde spirituel
+
+*Voir le chapitre 7.*
+
+| Moment | Heures |
+|---|---|
+| **Coucher du soleil** | De 17 heures 30 à 18 heures |
+| **Soir** | De 18 heures à 22 heures |
+| **Nuit** | De 22 heures à 3 heures du matin (2 heures 59). Son cœur est minuit |
+| **Aube** | De 3 heures à 6 heures |
+| **Matinée** | De 6 heures à midi |
+| **Après-midi** | De midi à 18 heures |
+| **Journée** | De 6 heures à 18 heures, quand le soleil est présent |
+
+**Rappel :** dans le calendrier de Dieu, le jour commence le soir. **Un vrai jour de jeûne va de minuit à minuit.**
+
+## Annexe 2 — Les psaumes de chaque moment
+
+*Voir le chapitre 7.*
+
+| Moment | Psaumes |
+|---|---|
+| **Pour ouvrir la prière** | 22, 23 et 24, chacun précédé de trois « Jéhovah Saint », après un chant de louange |
+| **Pour fermer la prière** | 20, avant « Amen », puis sceller dans le sang de Jésus |
+| **Aube et matin** (de 3 heures à midi) | 1, 4, 17, 23, 24, 100 et 121 |
+| **Midi** | 51, 32 et 20 |
+| **Coucher du soleil** | 5 |
+| **Soir et nuit** (de 18 heures au lever du jour) | 2, 3, 7, 16, 23, 35, 54, 110 et 91 |
+| **Psaumes de combat** | 2, 3, 4, 5, 7, 16, 23, 27 et 91 |
+
+**Règle :** **jamais de psaume de combat en plein soleil.** Et après un combat, faites toujours quelque chose qui attire le bonheur.
+
+## Annexe 3 — Les psaumes selon votre besoin
+
+| Votre besoin | Psaume | Chapitre |
+|---|---|---|
+| Ouvrir la prière | 22, 23 et 24 | 7 |
+| Sceller la prière, l'exaucement | 20 | 7 |
+| Porter une injustice devant Dieu | 94 (et 22) | 8 |
+| Se couvrir avant de sortir | 121, sept fois à genoux | 9 |
+| Se protéger, l'abri | 91 ; aussi 21, 25 et 35 | 9 |
+| Désactiver un cadeau piégé | 27 | 9 |
+| Bain de protection | 35 | 9 |
+| Consacrer l'huile | 23 | 9 |
+| S'endormir en paix | 4, verset 9 | 9 |
+| Faire prospérer sa boutique | 90, verset 17 | 10 |
+| Réussir un rendez-vous important | 90, verset 17 | 10 |
+| Consacrer une maison ou une boutique louée | 35 et 100 | 10 |
+| Attirer l'argent | 72 | 10 |
+| Recevoir des rêves de révélation | 41 | 10 |
+| Voir le vrai visage d'une personne | 82 | 10 |
+| Chasser l'esprit de peur | 141 | 10 |
+| La paix et l'amour dans le couple | 45 et 46 | 10 |
+| La guérison | 91 | 10 |
+| Avoir des enfants | 14 | 10 |
+| Faciliter l'accouchement | 1 | 10 |
+| Effacer une faute | 51, cinquante et une fois | 10 |
+
+**Rappel :** avant de pratiquer un psaume, invoquez le nom de Dieu qui correspond à votre besoin, ou dites trois fois « Jéhovah Saint » (chapitre 6). **Tout se fait au nom de Jésus.**
+
+## Annexe 4 — Les pratiques et leurs heures
+
+| Pratique | Quand | Chapitre |
+|---|---|---|
+| Parler à la terre | De 2 ou 3 heures à 5 heures du matin, ou de 22 heures à 23 heures ; face à l'est | 5 |
+| Convocation spirituelle par le Psaume 94 | De minuit vingt à 2 heures 59 ; à genoux, face à l'est | 8 |
+| Prière avant de sortir | Chaque matin, avant de quitter la maison | 9 |
+| Boutique, Psaume 90, verset 17 | Chaque matin, avant d'ouvrir | 10 |
+| Consacrer une maison louée | Tôt le matin ou le soir, jamais en plein soleil | 10 |
+| Rêves, Psaume 41 | Le soir, avant de dormir | 10 |
+| Vrai visage, Psaume 82 | À 21 heures, quatorze soirs de suite | 10 |
+| Guérison, Psaume 91 sur l'eau | De 3 heures à 5 heures 30, avant le lever du soleil ; boire à jeun | 10 |
+| Consacrer la dîme | La nuit à 3 heures, à genoux face à l'est ; puis trois matins entre 4 heures et 5 heures | 12 |
