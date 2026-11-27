@@ -157,3 +157,18 @@
 - Joseph valide la troisième version du chapitre 1.
 - Témoignage de la voiture sans conducteur : gardé pour l'instant,
   Joseph n'a pas tranché.
+
+## 27 novembre 2026 — chapitre 2 rédigé, en attente de validation
+
+- manuscrit/partie-1.md, à la suite du chapitre 1.
+- Laissés de côté : « il n'y a personne au paradis » (doctrine
+  contestée) ; l'exemple nommé d'un esprit du Bénin (vexant pour un
+  pays voisin) ; le prêtre catholique prosterné (renvoyé au chapitre 5,
+  sans nommer d'Église) ; « si un sorcier est ici, il peut témoigner ».
+- **Lacune à signaler :** l'auteur annonce cinq lieux de décision des
+  esprits mais n'en nomme que quatre (carrefour, dépotoir, eaux,
+  cimetière). Le quatrième n'est pas dit. Question pour le Dr Raphaël.
+- Versets ajoutés, vérifiés en Louis Segond 1910 : Marc 5, 1-13 ;
+  Daniel 10, 20 ; Deutéronome 32, 8 ; Actes 17, 26 ; Josué 1, 3 ;
+  Hébreux 1, 14 ; Genèse 28, 11-17 ; Ézéchiel 21, 26 (numérotation de
+  cette édition ; certaines éditions Segond numérotent 21, 21).

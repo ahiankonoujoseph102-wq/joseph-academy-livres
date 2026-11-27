@@ -162,3 +162,136 @@ Jésus le savait lorsqu'il envoya ses disciples dans les villes : « Lorsqu'on n
 ## Vers le chapitre 2
 
 Vous savez désormais que le monde spirituel existe, qu'il est organisé et qu'il gouverne le monde physique. Vous savez aussi que des esprits opèrent dans les eaux, dans les airs et sur la terre. Il reste à comprendre comment ils se partagent l'espace. Votre pays, votre ville, votre quartier, votre église et votre maison relèvent chacun d'une autorité spirituelle, et aucun esprit ne passe librement d'un territoire à l'autre. C'est cette carte du monde invisible que le chapitre suivant va déployer devant vous : **les lieux et leurs esprits.**
+
+---
+
+# Chapitre 2 — Les lieux et leurs esprits
+
+> « Maintenant je m'en retourne pour combattre le chef de la Perse ; et quand je partirai, voici, le chef de Javan viendra. »
+> **Daniel 10, verset 20**
+
+## La supplication de Légion
+
+Jésus vient de traverser la mer avec ses disciples. À peine a-t-il posé le pied sur l'autre rive, dans le pays des Gadaréniens, qu'un homme sort des tombeaux et court à sa rencontre. Cet homme vit dans les sépulcres. Personne ne peut plus le maîtriser, pas même avec des chaînes. Nuit et jour, il erre parmi les tombes et sur les montagnes, en criant et en se blessant avec des pierres. Quand Jésus demande son nom à l'esprit qui le tourmente, la réponse tombe : « Légion est mon nom, car nous sommes plusieurs » (Marc 5, verset 9).
+
+Ce qui suit devrait arrêter tout lecteur attentif. Ces esprits savent qu'ils vont être chassés. Ils ne discutent pas l'autorité de Jésus. Mais ils lui adressent une demande étonnante : « Il le priait instamment de ne pas les envoyer hors du pays » (Marc 5, verset 10).
+
+Pourquoi des esprits impurs, sur le point d'être expulsés, s'inquiètent-ils du pays ? Ils auraient pu demander à rester dans l'homme, à être épargnés, à obtenir un délai. Ils demandent autre chose : ne pas quitter ce territoire. **Parce qu'un esprit n'est pas un vagabond sans attache. Il est lié à un lieu. Il y a ses droits, ses habitudes et son autorité. L'en arracher, c'est lui faire perdre ce qu'il possède.**
+
+Regardez aussi où se déroule toute la scène. L'homme habite les tombeaux. Les esprits, une fois chassés, entrent dans un troupeau de porcs qui se précipite dans la mer. Le cimetière, la mer, le territoire : en quelques versets, la Bible nous montre déjà la carte que ce chapitre va dérouler devant vous.
+
+> **Un esprit n'est jamais suspendu dans le vide. Il est toujours attaché à un lieu.**
+
+## La carte du monde invisible
+
+Au chapitre précédent, nous avons vu que le monde spirituel est organisé comme un royaume, avec ses trônes, ses dominations et ses autorités. Il faut maintenant aller plus loin : **ce royaume est découpé en territoires, et chaque territoire est placé sous l'autorité d'un esprit.** Chaque pays a son esprit. Chaque région a son esprit. Chaque ville, chaque quartier, chaque village a son esprit. Chaque église a son esprit. Chaque maison a son esprit.
+
+Pour le comprendre, regardez simplement comment un pays est administré. Prenez le Togo. Le pays est divisé en régions, les régions en préfectures, les préfectures en communes et en cantons, les cantons en villages et en quartiers. Chaque zone a ses limites, et chaque zone a son responsable : le chef de quartier, le chef de canton, le maire de la commune, le préfet, le responsable de la région et, au-dessus de tous, le président de la République. Aucun maire ne gouverne la commune voisine. Aucun chef de quartier ne commande dans le quartier d'à côté. Chacun exerce son autorité dans ses limites, et chacun rend compte à plus haut que lui.
+
+**Le monde spirituel fonctionne de la même manière.** Il y a un esprit majeur qui domine sur chaque territoire, et sous lui, des esprits qui gouvernent des zones plus petites. Et cette organisation ne s'arrête pas à la terre ferme : il y a des esprits qui dominent dans les eaux, et d'autres qui dominent dans les airs.
+
+La Bible elle-même nous laisse voir cette organisation. Lorsque le messager céleste parle à Daniel, il ne lui dit pas qu'il a été retenu par « un démon » quelconque. Il nomme précisément son adversaire : « le chef du royaume de Perse ». Et avant de repartir, il annonce la suite du combat : « Maintenant je m'en retourne pour combattre le chef de la Perse ; et quand je partirai, voici, le chef de Javan viendra » (Daniel 10, verset 20). La Perse a son chef. Javan, c'est-à-dire la Grèce, a le sien. **Chaque nation a, dans le monde invisible, une puissance qui la domine.**
+
+Ces limites ne sont pas tracées au hasard. Moïse le chantait déjà : « Quand le Très-Haut donna un héritage aux nations, quand il sépara les enfants des hommes, il fixa les limites des peuples » (Deutéronome 32, verset 8). Et Paul l'a confirmé devant les sages d'Athènes : Dieu a déterminé « la durée des temps et les bornes de leur demeure » (Actes 17, verset 26). Les frontières que nous voyons sur nos cartes ne sont donc pas de simples lignes dessinées par des hommes. **Avant d'être tracées sur le papier, elles existaient dans le monde invisible.**
+
+## Pourquoi les pays ont des frontières
+
+Vous êtes-vous déjà demandé pourquoi le Togo s'arrête exactement à tel endroit, et pourquoi le pays voisin commence exactement à tel autre ? Pourquoi la France s'arrête ici et l'Allemagne commence là ? On vous répondra par l'histoire, par les guerres, par les traités. Tout cela est vrai, mais ce n'est que la partie visible. Nous l'avons établi au premier chapitre : **ce qui se voit a d'abord été tiré de ce qui ne se voit pas.** Les frontières physiques ne font que révéler des frontières spirituelles.
+
+Voici le secret que beaucoup ignorent : **de la même façon que vous devez franchir la frontière physique d'un pays pour y entrer, il existe une frontière spirituelle que tout esprit doit franchir.** Et cette frontière n'est pas ouverte. Un esprit qui opère dans un pays ne peut pas aller opérer librement dans un autre pays. Il lui faut l'accord des esprits qui dominent sur ce territoire. Sans cet accord, il ne passe pas.
+
+Pensez à votre propre expérience de voyageur. Pour entrer au Ghana, il vous faut le cachet de la frontière. Pour aller au Nigeria, il vous faut un visa. Pour aller en France, il vous faut un visa encore plus difficile à obtenir. Personne ne trouve cela étrange. **Eh bien, le visa n'existe pas seulement dans le monde physique. Il existe aussi un visa spirituel.** Le monde visible ne fait que copier ce qui existe déjà dans le monde invisible.
+
+Il en va de même des ambassades. Chaque pays a, dans les autres pays, une ambassade qui le représente, défend ses intérêts et parle en son nom. Là encore, le visible reflète l'invisible : **les esprits de chaque pays ont, eux aussi, leurs représentants dans les autres pays.**
+
+> **Quand vous passez une frontière, vous ne traversez pas une seule limite. Vous en traversez deux : celle que l'on voit, et celle que l'on ne voit pas.**
+
+Cette connaissance a une conséquence très pratique. Lorsque vous voyagez, lorsque vous descendez d'un avion à Paris, à Montréal ou à Abidjan, lorsque vous quittez votre ville pour vous installer dans une autre, vous n'entrez pas sur une terre neutre. Vous entrez sur un territoire qui a déjà ses maîtres. Vous devrez y affronter des réalités spirituelles que vous ne connaissez pas. C'est pourquoi la Bible donne cette promesse à ceux qui entrent dans un pays nouveau : « Tout lieu que foulera la plante de votre pied, je vous le donne » (Josué 1, verset 3). Dieu ne la donne pas par hasard. Il la donne parce que chaque lieu est déjà gouverné, et qu'il faut en prendre possession. Je vous enseignerai, dans la deuxième partie de ce livre, ce qu'il faut faire au moment précis où vos pieds touchent le sol d'un nouveau territoire.
+
+Mais l'autorité des esprits ne s'exerce pas seulement à l'échelle des pays. Elle descend jusqu'au seuil de votre maison.
+
+## Devant chaque portail
+
+Écoutez bien ce que je vais vous dire, car c'est l'une des réalités les plus ignorées du monde spirituel : **chaque fois qu'un lieu est délimité, un esprit vient se tenir à son entrée.** Dès qu'une maison est construite, dès qu'une clôture est élevée, dès qu'un portail est posé, un esprit s'installe devant ce portail.
+
+Imaginez quatre parcelles côte à côte, achetées par quatre familles différentes. Tant que le terrain est nu, il n'y a qu'un seul espace. Mais dès que chaque famille construit sur sa parcelle et pose son portail, il y a quatre lieux délimités. **Et devant chacun des quatre portails, un esprit vient se placer.** Quatre maisons, quatre entrées, quatre esprits.
+
+Les peuples d'Afrique ont toujours perçu cette réalité, même lorsqu'ils l'ont mal interprétée. Dans beaucoup de nos villages, on trouve un fétiche à l'entrée du village. On en trouve un autre à l'entrée du grand marché. Pourquoi à l'entrée ? Parce que ceux qui les ont placés là savaient qu'à chaque limite se tient une puissance. Ils ont voulu représenter cette puissance, et souvent la servir. Ils avaient perçu une vérité du monde spirituel, mais ils l'ont mise au service des ténèbres.
+
+Vous verrez aussi, dans certaines maisons, des bouteilles d'eau déposées devant l'entrée, des objets enterrés sous la dalle du seuil, des choses attachées au-dessus du portail ou dressées devant lui. Ceux qui font cela ne connaissent pas Dieu. Mais ils connaissent le principe. **Ils savent qu'il y a quelqu'un à la porte, et ils appellent leur propre esprit pour dominer l'entrée.**
+
+Il faut ici apporter une précision importante. Quand je vous dis qu'un esprit se tient devant chaque portail, je ne vous dis pas que c'est forcément un démon. La Bible parle des anges comme « des esprits au service de Dieu, envoyés pour exercer un ministère en faveur de ceux qui doivent hériter du salut » (Hébreux 1, verset 14). **Tous les anges sont des esprits, mais tous les esprits ne sont pas des anges.** Il y a des esprits de Dieu qui veillent, et il y a des esprits des ténèbres qui cherchent à s'imposer. Toute la question est de savoir qui commande à votre porte.
+
+C'est pourquoi le croyant ne doit pas laisser l'entrée de sa maison sans gouvernement. Si vous ne voulez pas que le malheur franchisse votre seuil, prenez une bouteille d'eau, priez sur elle, puis versez-la devant votre portail. En la versant, parlez avec autorité : « Je parle à la terre de cette maison. Par le Saint-Esprit, je déclare qu'aucun malheur n'entrera ici. » Vous ne demandez pas une faveur à un esprit. Vous donnez un ordre au nom de Jésus-Christ, parce que **le chrétien a reçu autorité pour commander dans le monde spirituel.** Faites-le avec foi, et vous verrez : même lorsque des vols frappent le quartier, la maison ainsi couverte est gardée. Je vous apprendrai, au cinquième chapitre, comment activer pleinement la puissance de l'eau avant de vous en servir.
+
+Une règle de sagesse doit cependant accompagner cette pratique : **ne parlez à la terre que là où vous avez autorité.** Si vous êtes dans votre propre maison, faites-le sans crainte. Si vous louez une maison où vous vivez seul, vous pouvez le faire aussi, car l'espace est sous votre responsabilité. Mais si vous habitez dans une cour partagée avec d'autres locataires, abstenez-vous. Le propriétaire peut avoir placé là un autre esprit gardien, et vous ne savez pas ce que vous rencontrerez. **Tant que vous ne savez pas quel esprit garde un lieu, ne lui parlez pas.**
+
+## Devant chaque église
+
+Ce qui est vrai pour la maison l'est aussi pour l'église. **Devant la porte de chaque église où Dieu est réellement servi, un esprit de Dieu se tient établi.** L'onction, la présence et la puissance qui se manifestent à l'intérieur ont marqué l'entrée elle-même.
+
+Jacob en a fait l'expérience sans l'avoir cherchée. Il fuyait son frère Ésaü. Surpris par la nuit, il s'était couché à même le sol, une pierre pour oreiller. Dans un songe, il vit une échelle appuyée sur la terre, dont le sommet touchait au ciel, et les anges de Dieu qui y montaient et descendaient. À son réveil, il s'écria : « Certainement, l'Éternel est en ce lieu, et moi, je ne le savais pas ! » Puis, saisi de crainte : « Que ce lieu est redoutable ! C'est ici la maison de Dieu, c'est ici la porte des cieux ! » (Genèse 28, versets 16 et 17). **Il y a des lieux où le ciel touche la terre. Il y a des portes que Dieu habite.**
+
+C'est pour cette raison que, dans certains combats spirituels, l'Esprit de Dieu peut conduire un croyant, par révélation, à aller prendre du sable devant l'entrée d'une église. Ce n'est pas de la superstition. Ce sable a été foulé par ceux qui viennent adorer, et il se trouve dans l'espace qu'un esprit de Dieu tient sous son autorité. La présence de Dieu a marqué cette terre.
+
+Mais si des esprits de Dieu veillent aux portes de ses maisons, les esprits des ténèbres ont, eux aussi, leurs lieux de rassemblement.
+
+## Là où se prennent les décisions
+
+Dans chaque quartier, dans chaque village, dans chaque ville, il existe des lieux où les esprits se réunissent pour prendre des décisions concernant ceux qui vivent sur ce territoire. On pourrait les appeler leurs **quartiers généraux**. C'est là que se décide le sort d'une famille, d'une entreprise, parfois d'un quartier tout entier.
+
+Ne sous-estimez jamais le poids d'un environnement. **Le quartier dans lequel vous vivez peut vous rendre stérile. Il peut vous rendre pauvre.** Il existe des quartiers où les jeunes ne réussissent pas, où l'on voit les mêmes échecs se répéter de maison en maison, où aucune entreprise ne prospère, quel que soit le talent de ceux qui s'y installent. Les gens accusent le manque d'argent, le manque de chance ou le manque de travail. Mais la cause est souvent plus profonde : quelque part, non loin de là, des esprits ont pris des décisions contre ce territoire.
+
+Voici les principaux lieux où ces décisions se prennent.
+
+**Le premier est le carrefour.** Depuis toujours, le carrefour est un lieu de décision spirituelle. La Bible elle-même le montre : lorsque le roi de Babylone devait choisir quelle ville attaquer, il « se tient au carrefour, à l'entrée des deux chemins, pour tirer des présages ; il secoue les flèches, il interroge les théraphim, il examine le foie » (Ézéchiel 21, verset 26). Ce n'est pas un hasard s'il est allé consulter les puissances à cet endroit précis. **Là où les chemins se croisent, les destins se décident.** Chaque carrefour abrite son esprit, qu'il soit en forme de croix, de T ou de Y. Et regardez autour de vous : il n'y a presque aucune maison qui ne soit à quelques mètres d'un carrefour. Chaque jour, vous le traversez pour aller au travail, au marché ou à l'église.
+
+**Le deuxième est le dépotoir.** Le lieu où l'on jette ce qui est rejeté, ce qui pourrit et ce qui sent mauvais attire les esprits impurs, et ils y tiennent conseil.
+
+**Le troisième est le lieu des eaux** : la mer, le fleuve, la rivière, le lac, le marigot. Les esprits des eaux y prennent leurs décisions pour les quartiers qui les bordent. Souvenez-vous de Légion : une fois chassés de l'homme, les esprits se sont précipités vers la mer.
+
+**Le quatrième est le cimetière.** Souvenez-vous encore de l'homme de Gadara : il « avait sa demeure dans les sépulcres » (Marc 5, verset 3). Ce n'est pas par hasard que les esprits qui le possédaient l'avaient conduit à vivre parmi les tombes.
+
+Vous me direz peut-être que vous n'habitez près d'aucun de ces lieux. Regardez mieux. Si vous n'êtes pas près d'une mer ou d'une rivière, vous êtes près d'un dépotoir. Si vous n'êtes pas près d'un dépotoir, vous êtes près d'un cimetière. Et si vous n'êtes près d'aucun d'eux, il y a forcément un carrefour à quelques pas de votre porte. **Personne ne vit loin de tous les lieux où se prennent les décisions spirituelles.**
+
+Je ne vous dis pas cela pour que vous viviez dans la peur. Je vous le dis pour que vous cessiez de vivre dans l'ignorance. Le croyant qui sait où se tiennent ces conseils peut prier en conséquence, protéger sa maison, couvrir ses enfants et sortir de chez lui en étant gardé. Je vous montrerai, au neuvième chapitre, comment vous protéger lorsque vous passez devant ces lieux.
+
+> **Vous n'habitez jamais un lieu neutre. Vous habitez toujours un territoire gouverné.**
+
+## Vous n'êtes pas un simple habitant
+
+Il y a une grande différence entre habiter un lieu et le posséder. Le serviteur d'Élisée habitait Dothan, mais c'est Élisée qui en connaissait les armées invisibles. Les habitants de Gadara vivaient près des tombeaux, mais c'est Jésus qui, en un mot, a libéré leur territoire.
+
+Désormais, vous savez que votre pays a son esprit, que votre quartier a ses lieux de décision, que votre église et votre maison ont chacune un esprit à leur porte. Cette connaissance vous place devant un choix. Vous pouvez continuer à vivre sur ces territoires comme un locataire qui ignore les règles de la maison. Ou vous pouvez apprendre à y entrer, à vous y faire reconnaître et à y exercer l'autorité que le Christ vous a donnée.
+
+---
+
+## Faites le point
+
+**Pour réfléchir**
+
+1. Pourquoi les esprits qui possédaient l'homme de Gadara ont-ils supplié Jésus de ne pas les envoyer hors du pays ? Que vous apprend cette demande sur le lien entre les esprits et les territoires ?
+2. Daniel 10, verset 20 parle du « chef de la Perse » et du « chef de Javan ». Qu'est-ce que ce verset révèle sur l'organisation du monde invisible ?
+3. Expliquez avec vos propres mots ce qu'est le « visa spirituel ». Pourquoi est-il important d'en tenir compte lorsque vous voyagez ou déménagez ?
+4. Pourquoi ne faut-il pas parler à la terre dans une cour partagée avec d'autres locataires ?
+5. Quels sont les quatre lieux où les esprits prennent leurs décisions ? Lequel est le plus proche de chez vous ?
+
+**Pour pratiquer**
+
+1. **Dessinez la carte de votre territoire.** Dans votre cahier, dessinez votre maison au centre d'une page. Autour d'elle, placez le carrefour le plus proche, puis le dépotoir, le cimetière, la rivière, le lac ou la mer s'il y en a. Notez la distance approximative de chacun. Vous saurez désormais où se tiennent les conseils qui concernent votre quartier.
+2. **Écrivez la liste des territoires sous lesquels vous vivez** : votre pays, votre région, votre ville, votre quartier, votre église, votre maison, votre lieu de travail. Pour chacun, notez ce que vous y observez de façon répétée, en bien comme en mal : réussites, blocages, maladies, conflits.
+3. **Observez votre quartier.** Pendant une semaine, regardez autour de vous. Y a-t-il des échecs qui se répètent de maison en maison ? Des familles où les mêmes malheurs reviennent ? Notez ce que vous voyez sans juger personne. Ces observations nourriront votre prière.
+4. **Gouvernez votre seuil.** Si vous habitez votre propre maison, ou si vous vivez seul dans votre logement, priez sur une bouteille d'eau et versez-la devant votre portail en déclarant : « Je parle à la terre de cette maison. Par le Saint-Esprit, je déclare qu'aucun malheur n'entrera ici. » Si vous vivez dans une cour partagée, ne le faites pas : priez seulement pour votre famille.
+
+## Ce qu'il faut retenir
+
+- **Un esprit est toujours attaché à un lieu.** Les esprits de Gadara ont supplié Jésus de ne pas les chasser hors du pays (Marc 5, verset 10).
+- **Le monde invisible est découpé en territoires**, comme un pays est découpé en régions, en villes et en quartiers. Chaque nation a sa puissance dominante, comme la Perse et Javan dans le livre de Daniel.
+- **Les frontières physiques révèlent des frontières spirituelles.** Aucun esprit ne passe d'un pays à l'autre sans l'accord des esprits de ce pays : c'est le visa spirituel.
+- **Devant chaque portail, un esprit se tient.** Tous les anges sont des esprits, mais tous les esprits ne sont pas des anges. Le croyant doit gouverner son seuil, mais seulement là où il a autorité.
+- **Devant chaque église où Dieu est servi, un esprit de Dieu est établi.**
+- **Les esprits prennent leurs décisions au carrefour, au dépotoir, près des eaux et au cimetière.** Personne ne vit loin de tous ces lieux.
+
+## Vers le chapitre 3
+
+Vous connaissez maintenant la carte du monde invisible. Vous savez que chaque territoire a ses maîtres, ses frontières et ses lieux de décision. Mais connaître la carte ne suffit pas pour y circuler librement. Un territoire peut vous accueillir ou vous rejeter. Il peut vous ouvrir toutes ses portes ou vous les fermer l'une après l'autre, quels que soient vos efforts. Tout dépend d'une chose que la plupart des croyants ignorent : **la reconnaissance du territoire.** C'est elle que le chapitre suivant va vous faire découvrir.
