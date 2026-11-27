@@ -122,3 +122,17 @@
   Éphésiens 6, 12 ; Genèse 1, 16-17 et 20 ; 2 Corinthiens 12, 2 ;
   Exode 7, 11-12 ; Actes 16, 16-18 ; 1 Corinthiens 15, 45 ;
   Matthieu 6, 33 ; Matthieu 10, 14.
+
+## 27 novembre 2026 — style : reprendre tout ce que fait Marcello
+
+- Consigne de Joseph : reprendre exactement la manière du pasteur
+  Marcello Tunasi (ton de prédicateur, formules en miroir, répétitions
+  qui martèlent, voix d'autorité, sous-parties numérotées 1., 1.1).
+  **Gardé.**
+- **Deux exceptions maintenues**, parce qu'elles viennent de consignes
+  de Joseph lui-même : les exercices et le résumé en fin de chapitre ;
+  le français très simple (pas les phrases longues ni le vocabulaire
+  savant de Marcello).
+- Jamais une phrase de Marcello copiée. Jamais une « révélation » ou un
+  témoignage inventé : la voix d'autorité s'appuie sur les tournures
+  réelles de l'auteur (« Écoutez-moi bien », « Je parle à quelqu'un »).
