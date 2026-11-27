@@ -594,3 +594,21 @@
 - Pourquoi des psaumes : Joseph demande de l'expliquer moi-même si besoin.
   Limite : je relie un psaume à son usage seulement par ce que dit son
   texte vérifié, jamais par une raison inventée au nom de l'auteur.
+
+## 27 novembre 2026 — vidéo 15 : réponses de l'auteur (deuxième série)
+
+Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
+- **Dédicace** : « est-ce que je peux pas faire l'auto-dédicace ? ».
+  Sens incertain (se dédier le livre à lui-même ? l'écrire lui-même ?).
+  À faire préciser par Joseph.
+- **Remerciements** : Dieu, le Saint-Esprit (« la plupart, c'est le
+  Saint-Esprit qui m'a enseigné »), son « manteau », le révérend et
+  prophète **Wilfrid Zahoui** (orthographe incertaine, entendu aussi
+  « Zawi »), et « un grand prophète de la nation » (non nommé). Il dit
+  qu'il reviendra vers Joseph avec la suite.
+- **Préface** : « non, j'ai pas de préface à faire, au-dessus de moi,
+  mon père spirituel et tout, je t'enverrai tout ça ». Sens probable :
+  pas de préface de sa part ; la question d'une préface par son père
+  spirituel reste ouverte. Il promet d'envoyer le reste.
+- Pas encore de réponse : à propos de l'auteur, Psaume 23, Psaume 1,
+  verset sur l'eau.

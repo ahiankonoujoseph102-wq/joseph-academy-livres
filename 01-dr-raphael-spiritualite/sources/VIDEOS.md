@@ -45,5 +45,6 @@ Lien de téléchargement :
 | 12 | 1ZF6Va1J3cIHqsYZmDnET1X3Da80hb3jU | `réponse 1.mp4` | 0,51 Go | 9 min | Réponses aux 8 questions |
 | 13 | 1Iw1IgARqGdotp3JhUcYylcy5tT05RhkL | `LES CODES POUR RENDRE ES PSAUMES PUISSANTS…mp4` | 0,32 Go | 20 min | YouTube — les saints noms |
 | 14 | 10y_g1GbMaLADCHUOkTMrjXkkKKk02AOc | `screen-20261126-102200-….mp4` | 0,04 Go | 34 s | Consigne sur la vidéo 13 |
+| 15 | 16DuvXM9DAUC-AbtxjeolBfGLfs3COZWR | (sans nom) | 0,04 Go | 1 min 14 | Réponses à la deuxième série : dédicace, remerciements, préface |
 
 Analyse : `../analyse/REPONSES-AUTEUR.md`.
