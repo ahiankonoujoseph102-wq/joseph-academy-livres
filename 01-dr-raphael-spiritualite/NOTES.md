@@ -433,3 +433,12 @@
   avec Marc 11, 25, vérité avec Psaume 94, 11). **Cette section est un
   ajout du prête-plume**, dans la ligne de ce que l'auteur a accepté
   (question 6). À signaler à Joseph.
+
+## 27 novembre 2026 — chapitre 8 réécrit VALIDÉ ; chapitre 9 réécrit
+
+- Chapitre 9 réécrit en entier (environ 4 300 mots). Ajouts vérifiés en
+  Louis Segond 1910 : Exode 12, 22 ; Éphésiens 6, 11 et 16 ; Psaume 121,
+  1-2 ; Genèse 48, 18 ; 2 Rois 6, 18-20 ; Luc 4, 29-30 ;
+  Deutéronome 7, 26 ; Actes 19, 19 ; 1 Samuel 16, 13 ; Marc 6, 13 ;
+  Psaume 4, 9. Nouvelle section finale « Revenir en paix ».
+- Fin de la réécriture des chapitres 1 à 9. Restent à écrire : 10, 11, 12.

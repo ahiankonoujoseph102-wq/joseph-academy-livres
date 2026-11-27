@@ -536,9 +536,11 @@ Réclamer justice est une chose. Mais il vaut mieux encore ne pas être atteint.
 
 C'était la nuit la plus terrible de l'histoire de l'Égypte. Dieu avait annoncé qu'il frapperait tous les premiers-nés du pays, et qu'aucune maison ne serait épargnée. Aucune, sauf celles qui porteraient un signe. Moïse avait transmis l'ordre de Dieu au peuple : chaque famille devait immoler un agneau, prendre un bouquet d'hysope, le tremper dans le sang, et en marquer le linteau et les deux poteaux de la porte. Et Dieu avait promis : « Le sang vous servira de signe sur les maisons où vous serez ; je verrai le sang, et je passerai par-dessus vous, et il n'y aura point de plaie qui vous détruise » (Exode 12, verset 13).
 
-Cette nuit-là, la mort passa dans toutes les rues d'Égypte. Elle frappa depuis le palais de Pharaon jusqu'à la prison du captif. Mais devant chaque porte marquée du sang, elle passa son chemin. **Les Israélites n'étaient pas plus forts que les Égyptiens. Ils étaient couverts.**
+Cette nuit-là, la mort passa dans toutes les rues d'Égypte. Elle frappa depuis le palais de Pharaon jusqu'à la prison du captif. Mais devant chaque porte marquée du sang, elle passa son chemin. **Les Israélites n'étaient pas plus forts que les Égyptiens. Ils n'étaient pas plus intelligents, ni plus riches, ni mieux armés. Ils étaient couverts.**
 
-Ce chapitre vous apprend à être couvert. Vous savez désormais, depuis le deuxième chapitre, que vous ne vivez pas sur un territoire neutre. Chaque jour, vous sortez de chez vous et vous passez devant des carrefours, des cimetières, des rivières, des lieux où les esprits prennent leurs décisions et où l'on dépose des sacrifices. Chaque jour, des flèches peuvent être lancées contre vous. **La question n'est pas de savoir si vous serez exposé. Vous l'êtes. La question est de savoir si vous serez couvert.**
+Remarquez aussi ce que Dieu leur avait ordonné : « Nul de vous ne sortira de sa maison jusqu'au matin » (Exode 12, verset 22). Cette nuit-là, la protection était attachée au seuil. Celui qui serait sorti de sous le sang aurait été exposé comme les autres. Aujourd'hui, nous ne pouvons pas rester enfermés chez nous. Nous devons sortir chaque matin, aller au travail, au marché, à l'école, à l'église. **Il faut donc apprendre à emporter la couverture avec soi.**
+
+C'est ce que ce chapitre vous enseigne. Vous savez désormais, depuis le deuxième chapitre, que vous ne vivez pas sur un territoire neutre. Chaque jour, vous sortez de chez vous et vous passez devant des carrefours, des cimetières, des rivières, des lieux où les esprits prennent leurs décisions et où l'on dépose des sacrifices. Chaque jour, des flèches peuvent être lancées contre vous. **La question n'est pas de savoir si vous serez exposé. Vous l'êtes. La question est de savoir si vous serez couvert.**
 
 > **Ce n'est pas la force qui protège le croyant. C'est la couverture.**
 
@@ -546,11 +548,13 @@ Ce chapitre vous apprend à être couvert. Vous savez désormais, depuis le deux
 
 Nous avons vu que le carrefour est l'un des lieux où les esprits prennent leurs décisions. Il faut maintenant comprendre pourquoi il est aussi dangereux pour celui qui y passe.
 
-C'est au carrefour, surtout au carrefour à quatre voies, que ceux qui servent les ténèbres viennent déposer leurs offrandes aux esprits. En Afrique, on les voit parfois : de la nourriture, des objets, des restes de sacrifices. Ailleurs, on ne les voit pas, mais ils sont déposés de manière invisible. Et voici ce que beaucoup ignorent : **certaines personnes viennent y déposer une maladie.** Quelqu'un est malade d'une maladie spirituelle, ou veut se débarrasser d'un mal. Il va la porter au carrefour et la remet à un esprit. Cet esprit garde la maladie et attend. Lorsqu'un passant à l'esprit faible traverse le carrefour, l'esprit la lui transmet.
+C'est au carrefour, surtout au carrefour à quatre voies, que ceux qui servent les ténèbres viennent déposer leurs offrandes aux esprits. En Afrique, on les voit parfois : de la nourriture, des objets, des restes de sacrifices. Ailleurs, on ne les voit pas, mais ils sont déposés de manière invisible. Et malheur à celui qui passe au moment où l'esprit vient prendre ce qui lui a été offert. Le passant ne voit rien. Mais lui, l'esprit, le voit.
+
+Et voici ce que beaucoup ignorent : **certaines personnes viennent y déposer une maladie.** Quelqu'un est malade d'une maladie spirituelle, ou veut se débarrasser d'un mal. Il va la porter au carrefour et la remet à un esprit. Cet esprit garde la maladie et attend. Lorsqu'un passant à l'esprit faible traverse le carrefour, l'esprit la lui transmet.
 
 C'est ainsi que certaines personnes quittent leur travail en bonne santé, passent devant un carrefour, et arrivent chez elles avec de la fièvre. Puis la fièvre devient une maladie grave, que les médecins ne comprennent pas. **Ce que l'on n'a pas vu au carrefour, on l'emporte à la maison.**
 
-Je ne vous dis pas cela pour que vous ayez peur de sortir. Je vous le dis pour que vous ne sortiez plus jamais découvert.
+Je ne vous dis pas cela pour que vous ayez peur de sortir. La peur n'est pas une arme. Je vous le dis pour que vous ne sortiez plus jamais découvert. L'apôtre Paul ne demandait pas aux chrétiens d'Éphèse de rester cachés : il leur demandait de s'armer. « Revêtez-vous de toutes les armes de Dieu, afin de pouvoir tenir ferme contre les ruses du diable » (Éphésiens 6, verset 11). Et il précisait : « Prenez par-dessus tout cela le bouclier de la foi, avec lequel vous pourrez éteindre tous les traits enflammés du malin » (Éphésiens 6, verset 16). **Les traits enflammés existent. Mais il existe aussi un bouclier qui les éteint.**
 
 ## Trois manières de passer
 
@@ -560,15 +564,17 @@ Il y a trois manières de passer devant un carrefour, un cimetière, une rivièr
 
 **La deuxième manière est celle de celui qui sait qu'il n'est pas encore fort spirituellement.** Au moment de traverser le carrefour, il retient sa respiration, passe, puis respire de nouveau une fois le carrefour traversé. Ce n'est qu'un moyen de prudence pour celui qui n'a pas encore d'autre arme.
 
-**La troisième manière est la meilleure de toutes : prier avant de sortir.** Celui qui a prié avant de franchir sa porte n'a plus besoin de retenir son souffle devant les carrefours. Il sort déjà couvert. C'est cette prière que je vais maintenant vous enseigner.
+**La troisième manière est la meilleure de toutes : prier avant de sortir.** Celui qui a prié avant de franchir sa porte n'a plus besoin de retenir son souffle devant les carrefours. Il sort déjà couvert. Il n'a pas à réagir dans l'urgence : il a pris l'initiative avant que le danger ne se présente. C'est cette prière que je vais maintenant vous enseigner.
 
 ## La prière avant de sortir
 
 ### Le Psaume 121
 
-Avant de quitter votre maison, mettez-vous à genoux et récitez **sept fois le Psaume 121.** C'est le psaume du départ et de l'arrivée. Écoutez ce qu'il proclame : « Il ne permettra point que ton pied chancelle ; celui qui te garde ne sommeillera point. […] L'Éternel te gardera de tout mal, il gardera ton âme ; l'Éternel gardera ton départ et ton arrivée, dès maintenant et à jamais » (Psaume 121, versets 3, 7 et 8).
+Avant de quitter votre maison, mettez-vous à genoux et récitez **sept fois le Psaume 121.** C'est le psaume du départ et de l'arrivée. Il commence par un regard levé : « Je lève mes yeux vers les montagnes… D'où me viendra le secours ? Le secours me vient de l'Éternel, qui a fait les cieux et la terre » (Psaume 121, versets 1 et 2). Avant même de franchir votre porte, vous déclarez d'où vient votre protection. Elle ne vient ni des hommes, ni des amulettes, ni de votre prudence : elle vient de celui qui a fait les cieux et la terre.
 
-Et voici un secret pour lui donner toute sa force : **personnalisez-le.** Le psaume parle à « toi ». Faites-en votre propre confession, en le disant à la première personne : « Il ne permettra point que mon pied chancelle ; celui qui me garde ne sommeillera point. L'Éternel me gardera de tout mal, il gardera mon âme ; l'Éternel gardera mon départ et mon arrivée. » Le psaume devient alors votre parole devant Dieu.
+Puis le psaume proclame : « Il ne permettra point que ton pied chancelle ; celui qui te garde ne sommeillera point. […] L'Éternel te gardera de tout mal, il gardera ton âme ; l'Éternel gardera ton départ et ton arrivée, dès maintenant et à jamais » (Psaume 121, versets 3, 7 et 8).
+
+Et voici un secret pour lui donner toute sa force : **personnalisez-le.** Le psaume parle à « toi ». Faites-en votre propre confession, en le disant à la première personne : « Il ne permettra point que mon pied chancelle ; celui qui me garde ne sommeillera point. L'Éternel me gardera de tout mal, il gardera mon âme ; l'Éternel gardera mon départ et mon arrivée. » Le psaume cesse alors d'être une promesse faite à quelqu'un d'autre. Il devient votre parole devant Dieu, et la parole de Dieu sur vous.
 
 ### La main sur la tête
 
@@ -576,19 +582,21 @@ Quand vous avez fini de réciter le psaume, posez votre main sur votre tête et 
 
 Quand vous priez pour vous-même afin de demander quelque chose, la bénédiction, la protection, la faveur, **posez la main droite sur votre tête.** Quand vous priez pour vous-même afin de mener un combat, pour que tout ce qui veut vous lancer un sort soit paralysé, **posez la main gauche.**
 
-La Bible connaît cette distinction. Lorsque le patriarche Jacob bénit les deux fils de Joseph, il croisa volontairement les bras pour poser sa main droite sur la tête d'Éphraïm, le plus jeune, et sa main gauche sur celle de Manassé, l'aîné. Joseph voulut corriger son geste, mais Jacob refusa : il savait ce qu'il faisait. La Bible précise : « ce fut avec intention qu'il posa ses mains ainsi » (Genèse 48, verset 14). **La main droite porte la bénédiction principale.**
+La Bible connaît cette distinction. Lorsque le patriarche Jacob bénit les deux fils de Joseph, il croisa volontairement les bras pour poser sa main droite sur la tête d'Éphraïm, le plus jeune, et sa main gauche sur celle de Manassé, l'aîné. Joseph voulut corriger son geste : « Pas ainsi, mon père, car celui-ci est le premier-né ; pose ta main droite sur sa tête. » Mais Jacob refusa : il savait ce qu'il faisait. La Bible précise : « ce fut avec intention qu'il posa ses mains ainsi » (Genèse 48, versets 14 et 18). **La main droite porte la bénédiction principale.**
 
 Pour la prière de protection avant de sortir, c'est donc la main droite qui convient, puisque vous demandez à Dieu de vous couvrir.
 
 ### Les trois demandes
 
-La main droite posée sur votre tête, priez avec foi pendant au moins quinze minutes, et si vous le pouvez pendant trente minutes. Votre prière doit contenir trois demandes.
+La main droite posée sur votre tête, priez avec foi pendant au moins quinze minutes, et si vous le pouvez pendant trente minutes. Ne bâclez pas ce temps. Celui qui part au combat ne s'habille pas en courant. Votre prière doit contenir trois demandes.
 
-**Premièrement, demandez que votre esprit devienne du feu.** Demandez à être rempli du feu du Saint-Esprit, de sorte que tout esprit qui s'approcherait de vous pour vous transmettre un mal soit brûlé et prenne la fuite. L'Écriture déclare que « notre Dieu est aussi un feu dévorant » (Hébreux 12, verset 29), et Dieu promet à son peuple : « Je serai pour elle une muraille de feu tout autour » (Zacharie 2, verset 5).
+**Premièrement, demandez que votre esprit devienne du feu.** Demandez à être rempli du feu du Saint-Esprit, de sorte que tout esprit qui s'approcherait de vous pour vous transmettre un mal soit brûlé et prenne la fuite. L'Écriture déclare que « notre Dieu est aussi un feu dévorant » (Hébreux 12, verset 29), et Dieu promet à son peuple : « Je serai pour elle une muraille de feu tout autour » (Zacharie 2, verset 5). Personne ne pose la main sur un feu. Celui qui est rempli du feu de l'Esprit ne devient pas une proie facile : il devient un danger pour ceux qui voudraient l'atteindre.
 
-**Deuxièmement, demandez à être imbibé du sang de Jésus.** Comme le sang de l'agneau sur les portes d'Égypte, le sang de Jésus est le signe devant lequel le destructeur passe son chemin. Les croyants de l'Apocalypse ont vaincu l'accusateur « à cause du sang de l'agneau et à cause de la parole de leur témoignage » (Apocalypse 12, verset 11).
+**Deuxièmement, demandez à être imbibé du sang de Jésus.** Comme le sang de l'agneau sur les portes d'Égypte, le sang de Jésus est le signe devant lequel le destructeur passe son chemin. Les croyants de l'Apocalypse ont vaincu l'accusateur « à cause du sang de l'agneau et à cause de la parole de leur témoignage » (Apocalypse 12, verset 11). Le sang n'est pas un symbole vide. C'est la marque d'une alliance que les ténèbres reconnaissent.
 
 **Troisièmement, demandez à Dieu de vous rendre invisible et indétectable aux esprits.** Le Seigneur sait cacher les siens. Lorsque Saül poursuivait David pour le tuer, il entra dans une caverne où David et ses hommes se tenaient au fond. Saül ne les vit pas (1 Samuel 24, verset 4). J'y vois la main de Dieu qui cachait David aux yeux de celui qui voulait sa mort.
+
+Ce n'est pas la seule fois que Dieu a soustrait les siens aux regards de leurs ennemis. Lorsque l'armée syrienne descendit pour s'emparer d'Élisée, le prophète pria : « Daigne frapper d'aveuglement cette nation ! Et l'Éternel les frappa d'aveuglement, selon la parole d'Élisée » (2 Rois 6, verset 18). Ceux qui étaient venus le capturer ne le reconnurent pas, et il les conduisit lui-même jusqu'au cœur de Samarie. Et lorsque les habitants de Nazareth, furieux contre Jésus, le menèrent au sommet de la montagne pour le précipiter en bas, la Bible dit simplement : « Mais Jésus, passant au milieu d'eux, s'en alla » (Luc 4, verset 30). Ils étaient là, tout autour de lui, décidés à le tuer, et il est passé au milieu d'eux. **Dieu peut fermer les yeux de vos ennemis au moment même où ils vous cherchent.**
 
 Voici un modèle de prière que vous pouvez faire vôtre :
 
@@ -600,7 +608,9 @@ Vous pouvez ajouter à cette prière tout ce que l'Esprit vous inspire. Mais gar
 
 ## Le Psaume 91, le psaume de l'abri
 
-Il existe un autre psaume de protection que vous devez connaître : **le Psaume 91.** C'est le grand psaume de l'abri. « Celui qui demeure sous l'abri du Très-Haut repose à l'ombre du Tout-Puissant. […] Tu ne craindras ni les terreurs de la nuit, ni la flèche qui vole de jour. […] Aucun malheur ne t'arrivera, aucun fléau n'approchera de ta tente. Car il ordonnera à ses anges de te garder dans toutes tes voies » (Psaume 91, versets 1, 5, 10 et 11).
+Il existe un autre psaume de protection que vous devez connaître : **le Psaume 91.** C'est le grand psaume de l'abri. « Celui qui demeure sous l'abri du Très-Haut repose à l'ombre du Tout-Puissant. Je dis à l'Éternel : Mon refuge et ma forteresse, mon Dieu en qui je me confie ! […] Tu ne craindras ni les terreurs de la nuit, ni la flèche qui vole de jour. […] Aucun malheur ne t'arrivera, aucun fléau n'approchera de ta tente. Car il ordonnera à ses anges de te garder dans toutes tes voies » (Psaume 91, versets 1, 2, 5, 10 et 11).
+
+Remarquez ce que ce psaume promet : la protection de jour comme de nuit, contre la terreur comme contre la flèche, et la garde des anges sur chacun de vos chemins. C'est précisément ce dont a besoin celui qui sort chaque matin.
 
 Avant de sortir, vous pouvez aussi vous couvrir avec ce psaume. Posez la main droite sur votre tête. Dites trois fois « Jéhovah Saint », puis récitez le Psaume 91. Faites-le **trois fois** : trois fois « Jéhovah Saint » et le psaume, une deuxième fois, puis une troisième fois.
 
@@ -612,7 +622,9 @@ Retenez aussi que d'autres psaumes ont une vertu de protection, et que vous pouv
 
 Il y a une attaque à laquelle peu de croyants pensent : celle qui entre dans votre maison par un cadeau. Un objet, un vêtement, un bijou, un parfum, un tissu offert avec un sourire, mais chargé d'autre chose. Le cadeau semble innocent, et pourtant il a été « miné », comme on mine un terrain. Une fois dans votre maison, il fait son œuvre.
 
-Vous n'avez pas besoin de soupçonner tous ceux qui vous offrent quelque chose. Mais lorsque vous recevez un cadeau d'une personne dont vous doutez, ou lorsque vous ressentez un malaise devant un objet reçu, **désactivez-le avec le Psaume 27.**
+La Bible prend très au sérieux les objets que l'on introduit chez soi. Dieu avertit son peuple : « Tu n'introduiras point une chose abominable dans ta maison, afin que tu ne sois pas, comme cette chose, dévoué par interdit » (Deutéronome 7, verset 26). Un objet chargé peut faire tomber sur une maison ce qui pèse sur lui. Et lorsque l'Évangile toucha la ville d'Éphèse, ceux qui avaient pratiqué la magie apportèrent leurs livres et « les brûlèrent devant tout le monde » (Actes 19, verset 19), bien que ces livres aient eu une grande valeur. Ils savaient qu'on ne garde pas chez soi ce qui appartient aux ténèbres.
+
+Vous n'avez pas besoin de soupçonner tous ceux qui vous offrent quelque chose. La méfiance permanente n'est pas un fruit de l'Esprit. Mais lorsque vous recevez un cadeau d'une personne dont vous doutez, ou lorsque vous ressentez un malaise devant un objet reçu, **désactivez-le avec le Psaume 27.**
 
 Posez le cadeau sur le sol. Posez votre main droite dessus. Dites trois fois « Jéhovah Saint ». Récitez le Psaume 27, qui commence par ces paroles : « L'Éternel est ma lumière et mon salut : de qui aurais-je crainte ? L'Éternel est le soutien de ma vie : de qui aurais-je peur ? Quand des méchants s'avancent contre moi pour dévorer ma chair, ce sont mes persécuteurs et mes ennemis qui chancellent et tombent » (Psaume 27, versets 1 et 2). Puis déclarez que tout ce qui a été placé sur ce cadeau est anéanti et renvoyé à celui qui l'a envoyé. Enfin, tracez une croix sur le cadeau en disant : « Par le sang de Jésus. »
 
@@ -630,7 +642,9 @@ Le Psaume 35 peut aussi être récité le soir pour protéger votre sommeil. **M
 
 Enfin, il existe un moyen de protection que vous pouvez utiliser chaque jour, pour vous et pour vos enfants : **l'huile d'olive consacrée par le Psaume 23.**
 
-Le Psaume 23 est un psaume particulier, parce qu'il fait à la fois le combat et le bonheur. Il proclame la victoire devant l'ennemi et la bénédiction dans la même phrase : « Tu dresses devant moi une table, en face de mes adversaires ; tu oins d'huile ma tête, et ma coupe déborde » (Psaume 23, verset 5). L'huile y est le signe de la faveur de Dieu au milieu de l'adversité. Et l'onction d'huile au nom du Seigneur est une pratique que l'Église a reçue des apôtres (Jacques 5, verset 14).
+L'huile, dans l'Écriture, n'est jamais un simple produit. Lorsque le prophète Samuel versa la corne d'huile sur la tête du jeune David au milieu de ses frères, la Bible dit : « L'esprit de l'Éternel saisit David, à partir de ce jour et dans la suite » (1 Samuel 16, verset 13). Les disciples de Jésus, envoyés deux à deux, « oignaient d'huile beaucoup de malades et les guérissaient » (Marc 6, verset 13). Et l'apôtre Jacques recommande aux anciens de l'Église de prier pour les malades « en l'oignant d'huile au nom du Seigneur » (Jacques 5, verset 14).
+
+Le Psaume 23 est un psaume particulier, parce qu'il fait à la fois le combat et le bonheur. Il proclame la victoire devant l'ennemi et la bénédiction dans la même phrase : « Tu dresses devant moi une table, en face de mes adversaires ; tu oins d'huile ma tête, et ma coupe déborde » (Psaume 23, verset 5). L'huile y est le signe de la faveur de Dieu au milieu de l'adversité.
 
 Voici comment consacrer l'huile. Prenez une bouteille d'huile d'olive. Trempez votre majeur, le doigt du milieu, dans l'huile. Récitez **trois fois** le Psaume 23. Puis prononcez sur cette huile vos paroles de protection et de faveur.
 
@@ -638,35 +652,44 @@ Chaque matin, avant que vos enfants partent à l'école, posez un peu de cette h
 
 > **Le feu pour repousser, le sang pour couvrir, l'huile pour bénir : voilà l'armure du croyant qui sort chaque matin.**
 
+## Revenir en paix
+
+La protection ne concerne pas seulement le départ. Le Psaume 121 le dit : « L'Éternel gardera ton départ **et ton arrivée**. » Celui qui sort couvert doit aussi rentrer en paix. Le soir, lorsque vous franchissez de nouveau votre portail, remerciez Dieu de vous avoir gardé. Si vous sentez qu'une lourdeur, une fatigue inhabituelle ou un malaise vous a suivi depuis la rue, ne vous couchez pas avec. Priez, couvrez-vous de nouveau du sang de Jésus, et chassez au nom de Jésus tout ce qui aurait cherché à entrer avec vous.
+
+Puis endormez-vous avec la confiance de David : « Je me couche et je m'endors en paix, car toi seul, ô Éternel ! tu me donnes la sécurité dans ma demeure » (Psaume 4, verset 9). **Le croyant couvert ne vit pas dans la peur des carrefours. Il les traverse le matin et s'endort en paix le soir.**
+
 ---
 
 ## Faites le point
 
 **Pour réfléchir**
 
-1. Relisez Exode 12, verset 13. Qu'est-ce qui distinguait les maisons épargnées des autres maisons d'Égypte ? Que vous apprend cette nuit sur la protection du croyant ?
-2. Pourquoi le carrefour est-il un lieu dangereux pour celui qui y passe sans être couvert ?
+1. Relisez Exode 12, versets 13 et 22. Qu'est-ce qui distinguait les maisons épargnées des autres maisons d'Égypte ? Pourquoi devons-nous aujourd'hui apprendre à « emporter la couverture avec nous » ?
+2. Pourquoi le carrefour est-il un lieu dangereux pour celui qui y passe sans être couvert ? Que vous apprend Éphésiens 6, verset 16, sur la manière d'y faire face ?
 3. Quelles sont les trois manières de passer devant un lieu où se tiennent les esprits ? Laquelle est la meilleure, et pourquoi ?
 4. Quelle main pose-t-on sur sa tête pour demander la protection, et quelle main pour le combat ? Que montre l'histoire de Jacob bénissant Éphraïm et Manassé ?
-5. Quelles sont les trois demandes de la prière avant de sortir ?
+5. Que vous apprennent Élisée devant l'armée syrienne et Jésus à Nazareth (2 Rois 6, verset 18 ; Luc 4, verset 30) sur la demande d'être « invisible » à l'ennemi ?
+6. Pourquoi Dieu interdit-il d'introduire dans sa maison une chose abominable (Deutéronome 7, verset 26) ? Y a-t-il chez vous des objets qui posent question ?
 
 **Pour pratiquer**
 
 1. **Établissez votre prière du matin.** Pendant les vingt et un prochains jours, avant de sortir de chez vous, récitez sept fois le Psaume 121 à genoux, en le personnalisant. Puis posez la main droite sur votre tête et faites la prière du feu, du sang et de l'invisibilité pendant au moins quinze minutes. Notez dans votre cahier ce que vous observez.
 2. **Apprenez le Psaume 91 par cœur.** Récitez-en une partie chaque jour jusqu'à le savoir en entier.
-3. **Passez en revue les cadeaux reçus.** Pensez aux objets reçus de personnes dont vous doutez, ou qui vous mettent mal à l'aise. Désactivez-les par le Psaume 27, selon la méthode donnée dans ce chapitre.
+3. **Passez en revue les objets de votre maison.** Pensez aux cadeaux reçus de personnes dont vous doutez, et aux objets dont l'origine vous met mal à l'aise. Désactivez-les par le Psaume 27, ou débarrassez-vous de ceux qui appartiennent clairement aux ténèbres.
 4. **Consacrez votre huile.** Achetez une bouteille d'huile d'olive, consacrez-la par le Psaume 23, et commencez à oindre chaque matin la tête de vos enfants et votre propre front.
 5. **Prenez votre bain de protection** avec le Psaume 35, en dehors des heures de plein soleil, trois fois dans le mois.
+6. **Rentrez en paix.** Pendant une semaine, chaque soir en rentrant, remerciez Dieu de vous avoir gardé, et endormez-vous en déclarant le Psaume 4, verset 9.
 
 ## Ce qu'il faut retenir
 
-- **Ce n'est pas la force qui protège le croyant, c'est la couverture**, comme le sang sur les portes d'Égypte (Exode 12, verset 13).
-- **Au carrefour, des esprits gardent ce qu'on y a déposé, parfois des maladies**, et les transmettent aux passants à l'esprit faible.
+- **Ce n'est pas la force qui protège le croyant, c'est la couverture**, comme le sang sur les portes d'Égypte (Exode 12, verset 13). Aujourd'hui, il faut emporter cette couverture avec soi.
+- **Au carrefour, des esprits gardent ce qu'on y a déposé, parfois des maladies**, et les transmettent aux passants à l'esprit faible. Le bouclier de la foi éteint ces traits enflammés.
 - **Trois manières de passer** : prier ou parler en langues si l'on est fort ; retenir sa respiration si l'on ne l'est pas ; et la meilleure, **prier avant de sortir.**
 - **Avant de sortir** : le Psaume 121 sept fois à genoux, personnalisé ; puis la main droite sur la tête et trois demandes : **le feu, le sang de Jésus, l'invisibilité.**
 - **Main droite sur la tête pour demander, main gauche pour combattre.**
 - **Le Psaume 91** : main droite sur la tête, trois fois « Jéhovah Saint » puis le psaume, trois fois. Autres psaumes de protection : 21, 25 et 35.
 - **Le Psaume 27 désactive un cadeau piégé. Le Psaume 35 sert au bain de protection. Le Psaume 23 consacre l'huile** qui protège et bénit chaque matin.
+- **L'Éternel garde le départ et l'arrivée** : rentrez en paix, et endormez-vous dans la sécurité qu'il donne.
 
 ## Vers le chapitre 10
 
