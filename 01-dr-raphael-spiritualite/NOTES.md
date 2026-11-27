@@ -330,3 +330,24 @@
   entier ; versets 1-2, 5-7, 15, 16, 22 cités) ; Luc 18, 1-8 ;
   Daniel 7, 9-10 ; Zacharie 3, 1 ; Apocalypse 12, 10 ; Romains 12, 19 ;
   Psaume 37, 5-6.
+
+## 27 novembre 2026 — chapitre 8 VALIDÉ (« OK »)
+
+## 27 novembre 2026 — chapitre 9 rédigé, en attente de validation
+
+- « Se protéger : en sortant et par les psaumes » (vidéos 03, 06, 07).
+- David « invisible » devant Saül : présenté comme interprétation de
+  l'auteur, appuyée sur 1 Samuel 24, 4 (Saül entre dans la caverne sans
+  voir David). Dans la prière : « Comme tu as caché David aux yeux de
+  Saül ».
+- Gardé : retenir sa respiration au carrefour (option de l'auteur pour
+  le croyant faible), présentée comme simple prudence.
+- Laissés de côté : retour à l'envoyeur avec l'eau de mer (conseil de
+  boire l'eau de mer retiré, question 6).
+- Psaume 91 pour la guérison et Psaumes 35 et 100 pour consacrer une
+  maison : renvoyés au chapitre 10.
+- Versets ajoutés, vérifiés en Louis Segond 1910 : Psaume 121 (lu en
+  entier) ; Exode 12, 13, 22 et 29 ; Genèse 48, 13-19 ; Hébreux 12, 29 ;
+  Zacharie 2, 5 ; Apocalypse 12, 11 ; 1 Samuel 24, 3-4 ; Psaume 91,
+  1, 5, 10-11 ; Psaume 27, 1-2 ; Psaume 35, 1-2 ; Psaume 23, 5 ;
+  Jacques 5, 14.
