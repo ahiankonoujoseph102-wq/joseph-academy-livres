@@ -389,3 +389,10 @@
   2, 3, 10, 12) ; Jérémie 29, 5 et 7 ; Joseph chez Potiphar (Genèse 39,
   2-5) ; Jean 15, 4-5 ; 2 Rois 2, 12 ; Deutéronome 34, 9 ;
   1 Corinthiens 4, 15. Tous vérifiés en Louis Segond 1910.
+
+## 27 novembre 2026 — chapitre 3 VALIDÉ ; chapitre 4 enrichi
+
+- Chapitre 4 enrichi (environ 4 500 mots) : Genèse 2, 9 ; Ézéchiel 47,
+  12 ; Apocalypse 22, 2 ; l'ânesse de Balaam (Nombres 22, 23-31) ;
+  Genèse 8, 20-21 ; Josué 6, 20 ; Apocalypse 7, 14. Vérifiés en Louis
+  Segond 1910.

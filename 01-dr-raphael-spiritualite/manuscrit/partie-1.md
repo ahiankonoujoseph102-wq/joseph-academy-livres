@@ -503,11 +503,15 @@ Commençons par le règne que nous côtoyons le plus, et dont on abuse le plus :
 
 Vous vous souvenez sans doute de vos leçons de sciences au collège. On vous a appris que les plantes sont vertes grâce à une substance appelée la chlorophylle. C'est elle qui leur donne leur couleur et leur permet de vivre de la lumière. Cela est vrai sur le plan scientifique. Mais il existe aussi un plan spirituel. **De même que la chlorophylle donne aux plantes leur couleur, l'esprit qui se tient auprès de chaque plante lui donne sa puissance.**
 
+Dès le jardin d'Éden, Dieu a placé dans des arbres une puissance spirituelle. « L'Éternel Dieu fit pousser du sol des arbres de toute espèce, agréables à voir et bons à manger, et l'arbre de la vie au milieu du jardin, et l'arbre de la connaissance du bien et du mal » (Genèse 2, verset 9). Toute l'histoire de l'humanité s'est jouée autour de deux arbres. L'un donnait la vie, l'autre ouvrait la connaissance du bien et du mal. **Si des arbres ont pu porter la vie et la mort de l'humanité entière, ne dites plus jamais qu'une plante n'est qu'une plante.**
+
 Regardez ce que font ceux qui servent les ténèbres. Les féticheurs utilisent des plantes. Certaines initiations traditionnelles se font avec des plantes. Pour ériger certaines idoles, il faut certaines herbes et certaines feuilles. Pourquoi des esprits auraient-ils besoin de plantes ? Parce que **chaque plante détient une capacité spirituelle**, et ceux qui connaissent le monde invisible le savent. C'est aussi pourquoi certaines plantes ne se cueillent pas en plein jour, et pourquoi certaines feuilles ne se cueillent qu'en respectant des règles précises que l'herboriste ne vous dira jamais.
 
 ### Les plantes ont perdu leur vertu d'origine
 
 Écoutez maintenant ce que je vais vous dire, car c'est un avertissement que je donne à tout le corps du Christ. Au commencement, Dieu a donné leur puissance aux plantes, et pendant des générations, elles ont soigné et sauvé des vies. Mais le monde spirituel connaît des mouvements. **Les esprits mauvais ont réussi à chasser les esprits qui accompagnaient les plantes depuis leur origine, et à prendre leur place.** C'est pourquoi j'affirme, avec la charge qui m'a été confiée, que les plantes de ce monde ont perdu leur première vertu spirituelle.
+
+Ce n'est pas que Dieu ait renoncé à la vertu des plantes. Au contraire, l'Écriture annonce qu'il la rétablira pleinement. Le prophète Ézéchiel a vu, au bord du fleuve qui sort du sanctuaire, des arbres dont « les fruits serviront de nourriture, et leurs feuilles de remède » (Ézéchiel 47, verset 12). Et l'Apocalypse décrit, dans la ville de Dieu, « un arbre de vie […] dont les feuilles servaient à la guérison des nations » (Apocalypse 22, verset 2). **La vertu d'origine des plantes reviendra, mais elle reviendra dans le royaume de Dieu, sous son autorité, et non dans les mains de ceux qui les ont souillées.**
 
 Pensez à une application sur votre téléphone. Elle fonctionnait parfaitement il y a quelques années. Mais si vous ne l'avez jamais mise à jour, elle ne fonctionne plus comme avant, et elle peut même devenir dangereuse pour votre appareil. **Il n'y a pas d'application sans mise à jour.** Celui qui se sert aujourd'hui des plantes comme on s'en servait autrefois, sans savoir ce qui a changé dans le monde invisible, utilise une application qui n'est plus à jour.
 
@@ -551,6 +555,12 @@ Les animaux, eux aussi, ont une forme de vie, une âme et un esprit. Et ils ont 
 
 C'est pourquoi, dans le monde de la sorcellerie et des féticheurs, on sacrifie des animaux. Ce n'est pas un hasard : **le sang porte une puissance.** La Bible elle-même le déclare : « Car l'âme de la chair est dans le sang » (Lévitique 17, verset 11). Les ténèbres ont compris cette loi et s'en servent pour leurs œuvres. Le croyant, lui, n'a plus besoin du sang des animaux, car il est couvert par le sang de Jésus-Christ. Mais il doit savoir que les animaux ne sont pas neutres dans le monde spirituel.
 
+### Les animaux voient ce que l'homme ne voit pas
+
+Les animaux sont si proches du monde spirituel que la Bible rapporte l'histoire d'une ânesse qui vit ce que son maître ne voyait pas. Le prophète Balaam s'était mis en route pour aller maudire le peuple de Dieu. Sur le chemin, un ange de l'Éternel se tenait, l'épée à la main, pour lui barrer le passage. Balaam ne voyait rien. Mais « l'ânesse vit l'ange de l'Éternel qui se tenait sur le chemin, son épée nue dans la main ; elle se détourna du chemin et alla dans les champs » (Nombres 22, verset 23). Trois fois l'ânesse se détourna, trois fois Balaam la frappa, jusqu'à ce que « l'Éternel ouvrit les yeux de Balaam, et Balaam vit l'ange de l'Éternel » (Nombres 22, verset 31).
+
+**Le prophète était aveugle, l'animal voyait.** Ne méprisez donc pas le règne animal. Les animaux perçoivent des présences, sentent des dangers et réagissent à des réalités que l'homme charnel ignore.
+
 ### Le pigeon blanc
 
 Il y a un animal que je recommande à tout homme et à toute femme spirituels : **le pigeon blanc.** Je ne vous parle pas de le sacrifier, ni de vous en servir dans une pratique quelconque. Je vous parle de sa simple présence. Les animaux dégagent une énergie, et celle du pigeon blanc est profitable.
@@ -577,6 +587,8 @@ Le Saint-Esprit n'aime pas la saleté. Il y a des dimensions de révélation dan
 
 Il y a des personnes qui prient sans être exaucées parce que l'atmosphère de leur lieu de prière est déjà occupée. Pensez à un homme respectable invité dans une pièce souillée et nauséabonde. Il n'y entrera pas. Ce n'est pas qu'il soit plus faible que celui qui s'y trouve à l'aise. C'est que le lieu ne lui convient pas. **Le Saint-Esprit n'est pas plus faible qu'un esprit impur. Mais il ne s'installe pas dans une atmosphère qui ne lui correspond pas.**
 
+Dieu lui-même est sensible à l'odeur. Après le déluge, Noé bâtit un autel et offrit des holocaustes, et la Bible dit : « L'Éternel sentit une odeur agréable, et l'Éternel dit en son cœur : Je ne maudirai plus la terre, à cause de l'homme » (Genèse 8, verset 21). **Une odeur agréable est montée vers Dieu, et une alliance de bénédiction est descendue sur la terre.**
+
 Préparez donc l'atmosphère de votre chambre et de votre lieu de prière avec une bonne odeur : un parfum, ou un diffuseur dans lequel on verse un peu d'eau et quelques gouttes d'arôme. L'apôtre Paul écrivait que nous sommes pour Dieu « la bonne odeur de Christ » (2 Corinthiens 2, verset 15).
 
 Je vous déconseille cependant l'usage de l'encens. Dans l'ancienne alliance, le parfum de l'encens était réservé au service de Dieu, et Dieu avait interdit d'en fabriquer pour soi : « Vous ne ferez point pour vous de parfum semblable […] ; vous le regarderez comme saint, et réservé pour l'Éternel. Quiconque en fera de semblable, pour le sentir, sera retranché de son peuple » (Exode 30, versets 37 et 38). Aujourd'hui, l'encens est largement utilisé dans des pratiques qui ne viennent pas de Dieu. Laissez-le de côté.
@@ -587,7 +599,7 @@ Je vous déconseille cependant l'usage de l'encens. Dans l'ancienne alliance, le
 
 Faites donc très attention à ce que vous écoutez. On trouve aujourd'hui sur internet des musiques dites « de relaxation », des musiques « pour attirer l'argent », des mélodies de méditation et des mantras que l'on répète. Beaucoup de ces sons sont chargés négativement. J'en ai fait moi-même l'expérience. Un soir, j'étais dans ma chambre, élevé dans l'esprit. J'ai vu une de ces musiques proposée pour la méditation et je me suis dit que ce devait être quelque chose d'angélique. Dès que je l'ai écoutée, j'ai perdu l'équilibre. Ma fréquence spirituelle s'est brouillée. Pour recevoir un message prophétique, il faut une fréquence claire. Avec une fréquence brouillée, on a beau se concentrer, on ne reçoit presque plus rien. Celui qui n'est pas sensible aux choses spirituelles n'y verra peut-être aucune différence. Mais celui qui est spirituel la sentira.
 
-À l'inverse, **le son peut attirer l'Esprit de Dieu.** La Bible en donne deux exemples saisissants. Quand le jeune David jouait de la harpe devant le roi Saül, « Saül respirait alors plus à l'aise et se trouvait soulagé, et le mauvais esprit se retirait de lui » (1 Samuel 16, verset 23). Et lorsque le prophète Élisée dut consulter l'Éternel, il dit : « Maintenant, amenez-moi un joueur de harpe. Et comme le joueur de harpe jouait, la main de l'Éternel fut sur Élisée » (2 Rois 3, verset 15).
+À l'inverse, **le son peut attirer l'Esprit de Dieu et ébranler les forteresses.** Souvenez-vous de Jéricho. Ses murailles étaient réputées imprenables. Israël n'avait ni béliers ni machines de guerre. Mais lorsque les sacrificateurs sonnèrent des trompettes et que le peuple poussa de grands cris, « la muraille s'écroula » (Josué 6, verset 20). Aucune arme n'avait touché la muraille. Un son l'avait renversée. La Bible en donne deux exemples saisissants. Quand le jeune David jouait de la harpe devant le roi Saül, « Saül respirait alors plus à l'aise et se trouvait soulagé, et le mauvais esprit se retirait de lui » (1 Samuel 16, verset 23). Et lorsque le prophète Élisée dut consulter l'Éternel, il dit : « Maintenant, amenez-moi un joueur de harpe. Et comme le joueur de harpe jouait, la main de l'Éternel fut sur Élisée » (2 Rois 3, verset 15).
 
 Quand vous voulez prier longtemps, mettez une adoration chrétienne qui vous inspire. Si vous voulez que votre esprit soit transporté pendant la nuit et voir dans le monde spirituel, endormez-vous au son de l'adoration. **L'Esprit de Dieu descend par ce son, il vous saisit, et vous pouvez voir des choses dans l'esprit.**
 
@@ -595,7 +607,7 @@ Quand vous voulez prier longtemps, mettez une adoration chrétienne qui vous ins
 
 Chaque couleur a sa signification dans le monde spirituel. Je ne vais pas toutes les détailler, car le chrétien n'a pas à vivre attaché aux couleurs. Mais je veux vous transmettre un code que j'ai appris par ma propre expérience. Je vous le dis honnêtement : ce n'est pas un commandement de la Bible, c'est ce que j'ai vécu, et je sais que cela vous aidera aussi.
 
-**Les jours où vous êtes dans une forte concentration spirituelle, portez du blanc.** Il y a des jours où vous sentez, dès le réveil, que vous êtes très proche de l'esprit, très concentré, prêt à voir Dieu agir de façon surnaturelle. Ces jours-là, habillez-vous de blanc. L'Écriture elle-même associe le blanc à la pureté et à la consécration : « Qu'en tout temps tes vêtements soient blancs, et que l'huile ne manque point sur ta tête » (Ecclésiaste 9, verset 8).
+**Les jours où vous êtes dans une forte concentration spirituelle, portez du blanc.** Il y a des jours où vous sentez, dès le réveil, que vous êtes très proche de l'esprit, très concentré, prêt à voir Dieu agir de façon surnaturelle. Ces jours-là, habillez-vous de blanc. L'Écriture elle-même associe le blanc à la pureté et à la consécration : « Qu'en tout temps tes vêtements soient blancs, et que l'huile ne manque point sur ta tête » (Ecclésiaste 9, verset 8). Et dans l'Apocalypse, ceux qui ont traversé la grande épreuve se tiennent devant le trône en robes blanches : « ils ont lavé leurs robes, et ils les ont blanchies dans le sang de l'agneau » (Apocalypse 7, verset 14).
 
 Et lorsqu'un enfant naît dans votre famille, fille ou garçon, **accueillez-le dans le blanc.** Le premier jour, que tout ce qu'il porte, du haut jusqu'en bas, soit blanc. Ce qu'un enfant reçoit à son entrée dans le monde n'est pas sans signification.
 
@@ -615,9 +627,10 @@ Tout cela était nécessaire. Mais la connaissance seule ne change pas une vie. 
 
 1. Relisez 2 Samuel 18, versets 8 et 9. Que vous apprend la manière dont Absalom a été arrêté sur la place de la création dans le combat spirituel ?
 2. Pourquoi les plantes sont-elles comparées, dans ce chapitre, à une application qui n'a pas été mise à jour ? Que retenez-vous de cette image ?
-3. Quelle différence faites-vous entre avoir des plantes chez soi et s'en servir à des fins spirituelles ?
-4. Pourquoi le chrétien ne doit-il pas compter sur une bague, un savon ou un parfum de protection ?
-5. Quelles sont les trois choses qui attirent les esprits ? Laquelle demande le plus de changements dans votre vie ?
+3. Que vous apprend l'histoire de l'ânesse de Balaam (Nombres 22, versets 23 à 31) sur la relation entre les animaux et le monde spirituel ?
+4. Quelle différence faites-vous entre avoir des plantes chez soi et s'en servir à des fins spirituelles ?
+5. Pourquoi le chrétien ne doit-il pas compter sur une bague, un savon ou un parfum de protection ?
+6. Quelles sont les trois choses qui attirent les esprits ? Laquelle demande le plus de changements dans votre vie ?
 
 **Pour pratiquer**
 
