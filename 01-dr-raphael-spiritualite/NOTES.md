@@ -556,3 +556,11 @@
 - Annexes ajoutées à la fin de manuscrit/fin.md : heures, psaumes de chaque
   moment, psaumes selon le besoin, pratiques et leurs heures. Tout est tiré
   des chapitres validés, rien d'ajouté.
+
+## 27 novembre 2026 — annexes VALIDÉES (« OK ») ; quatrième de couverture rédigée (en attente)
+
+- Quatrième de couverture ajoutée à la fin de manuscrit/fin.md.
+- Présentation de l'auteur limitée aux faits des sources : sa chaîne
+  « La Connaissance spirituelle » et ses deux livres cités dans la vidéo 09.
+- Question ajoutée pour l'auteur : le Psaume 23 figure à la fois dans la
+  liste du matin et dans les psaumes de combat (chapitre 7).

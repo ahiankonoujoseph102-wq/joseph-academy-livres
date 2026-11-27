@@ -145,3 +145,30 @@ Ces tableaux rassemblent ce qui est enseigné dans le livre. Ils servent à retr
 | Vrai visage, Psaume 82 | À 21 heures, quatorze soirs de suite | 10 |
 | Guérison, Psaume 91 sur l'eau | De 3 heures à 5 heures 30, avant le lever du soleil ; boire à jeun | 10 |
 | Consacrer la dîme | La nuit à 3 heures, à genoux face à l'est ; puis trois matins entre 4 heures et 5 heures | 12 |
+
+---
+
+# Quatrième de couverture
+
+## À LA DÉCOUVERTE DES SECRETS ET CODES DU MONDE SPIRITUEL
+
+### Comprendre, pratiquer et prier pour impacter le physique par le spirituel
+
+Devant Pharaon, les magiciens d'Égypte ont reproduit le signe de Moïse. **Les ténèbres ont leurs secrets et leurs codes, et elles s'en servent.** Mais le bâton d'Aaron a englouti tous les autres. Car Dieu aussi a ses secrets et ses codes, plus puissants que tous, et il les donne à ses enfants.
+
+Pourtant, beaucoup de croyants prient sans résultat. Ils aiment Dieu, ils jeûnent, ils ne manquent aucun culte, et leur vie, leur commerce ou leur santé ne changent pas. **Ce n'est pas la foi qui leur manque. C'est la connaissance.**
+
+Dans ce livre, vous découvrirez :
+
+- **comment fonctionne le monde invisible**, où se décide ce qui arrive dans le monde visible ;
+- **comment prendre possession de votre maison et de votre territoire** par l'eau et par la parole ;
+- **les clés qui ouvrent la puissance des psaumes**, et les heures où les prier ;
+- **comment porter une injustice devant le tribunal de Dieu** par le Psaume 94 ;
+- **les psaumes de la vie de tous les jours** : pour la boutique, l'argent, le sommeil, le couple, la santé ;
+- **la mystique de la dîme** : la consacrer, la donner, et faire fructifier ce qui vous reste.
+
+Chaque chapitre s'appuie sur la Bible et se termine par des exercices pratiques.
+
+**Un livre à vivre, et pas seulement à lire.**
+
+**Le Dr Raphaël** enseigne la connaissance spirituelle sur sa chaîne YouTube « La Connaissance spirituelle ». Il est l'auteur de *Le Pouvoir des prières mystiques* et de *Révélations et mystères sur les jours de naissance*.
