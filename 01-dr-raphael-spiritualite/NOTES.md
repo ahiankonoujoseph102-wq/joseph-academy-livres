@@ -683,3 +683,8 @@ Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
 - Joseph crée la couverture avec ChatGPT. Prompts fournis (première et
   quatrième). Photo 1 (main levée) pour la première, photo 4 en petit
   pour la quatrième.
+
+## 28 novembre 2026 — couverture : Joseph s'en charge
+
+- Deux essais ChatGPT jugés génériques par Joseph. Il fera lui-même les
+  couvertures plus tard. Ne plus proposer de prompt de couverture.
