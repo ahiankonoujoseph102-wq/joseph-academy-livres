@@ -688,3 +688,17 @@ Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
 
 - Deux essais ChatGPT jugés génériques par Joseph. Il fera lui-même les
   couvertures plus tard. Ne plus proposer de prompt de couverture.
+
+## 28 novembre 2026 — premier fichier Word du tome 1
+
+- livrable/A-la-decouverte-des-secrets-et-codes-du-monde-spirituel-tome-1.docx
+  et livrable/quatrieme-de-couverture.docx (séparée du livre).
+- Construit par outils/construire_word.py : A5 148 × 210 mm, marges en
+  miroir (intérieur 20 mm + reliure 5 mm, extérieur 14 mm), Georgia 10,5,
+  interligne 1,1, justifié, saut de page avant chaque titre de niveau 1,
+  numéros de page en bas, table des matières automatique (niveau 1)
+  remplie par LibreOffice (outils/remplir_table.py) pour s'afficher aussi
+  sur téléphone.
+- Environ 220 pages au rendu LibreOffice (peut varier un peu dans Word).
+  Tranche estimée à environ 11 mm sur papier 80 g, à confirmer par
+  l'imprimeur.
