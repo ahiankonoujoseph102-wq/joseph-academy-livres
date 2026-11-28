@@ -631,3 +631,29 @@ Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
   ne parle pas pour parler » (vidéo 11), le Saint-Esprit et le père
   spirituel comme sources de l'enseignement (vidéo 15). Aucun fait de
   biographie ajouté.
+
+## 28 novembre 2026 — réponses écrites de l'auteur (transmises par Joseph)
+
+1. Dédicace : « Je dédie ce livre à toute la communauté chrétienne. »
+2. Remerciements : le Saint-Esprit, « celui qui m'a enseigné plein de
+   choses dans le secret » ; le **prophète Amagou Zahui, depuis la Côte
+   d'Ivoire**. Écart avec Joseph (« Wilfried Zahui ») : on suit l'écrit
+   de l'auteur, question posée à Joseph.
+3. Préface : non.
+4. Auteur : **Docteur Raphaël AGBEDISSE** ; Lomé, Togo ; **Rapha Ministry**
+   depuis 2021 ; livres : *Le Pouvoir des prières mystiques*, *Révélation
+   et mystère sur les jours de naissance* ; téléphone +228 98 09 53 37 ;
+   YouTube et Facebook « Docteur Raphaël » ; TikTok « Rapha ministry ».
+   Pas de parcours ni de photo envoyés.
+5. Père spirituel : « je préfère ne pas le faire remarquer ». Retiré de
+   l'avant-propos (« en premier lieu de mon père spirituel »).
+6. Psaume 23 : tôt le matin pour la bénédiction, le soir pour le combat
+   (chapitre 7 et annexe 2 corrigés). Psaume 1 : la femme boit l'eau
+   (chapitre 10 corrigé). L'eau : Genèse 1, 2-3 et Jean 5, 4, vérifiés en
+   Louis Segond 1910 et ajoutés au chapitre 12.
+
+- Pages ajoutées : dédicace et remerciements (ouverture.md), « À propos de
+  l'auteur » (fin.md). Signature et quatrième de couverture mises au nom
+  complet, sans abréviation « Dr ».
+- À signaler : Jean 5, 4 manque dans les plus anciens manuscrits ; la TOB,
+  que lit l'auteur, le met en note.

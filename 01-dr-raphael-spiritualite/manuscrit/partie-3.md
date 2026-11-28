@@ -262,7 +262,7 @@ Entre dix-sept heures trente et dix-huit heures, au moment où le soleil se couc
 
 À partir de dix-huit heures et jusqu'au lever du jour, lorsque le soleil n'est plus là, vous pouvez utiliser **les Psaumes 2, 3, 7, 16, 23, 35, 54, 110 et 91.**
 
-Vous remarquerez que le Psaume 23 se trouve à la fois dans la liste du matin et dans celle de la nuit. Ce n'est pas une erreur. Ces deux moments ont un point commun : le soleil n'y est pas encore levé, ou il s'est déjà couché. Et c'est là tout le secret de la règle que je vais maintenant vous donner.
+Vous remarquerez que le Psaume 23 se trouve à la fois dans la liste du matin et dans celle de la nuit. Ce n'est pas une erreur : un même psaume peut servir à plusieurs usages. **Tôt le matin, on prie le Psaume 23 pour la bénédiction. Le soir, on le pratique pour le combat.** Et c'est là tout le secret de la règle que je vais maintenant vous donner.
 
 ## Le soleil et les psaumes de combat
 
@@ -872,7 +872,7 @@ Beaucoup de femmes portent en silence une souffrance : celle du ventre qui ne po
 
 **Pour une femme qui désire avoir des enfants, il y a le Psaume 14.** Ce psaume a plusieurs usages. L'un d'eux est de permettre à une femme stérile de concevoir, et même d'avoir des jumeaux. Souvenez-vous du principe vu au chapitre 6 : avant de pratiquer un psaume, on invoque Dieu sous le nom qui correspond à ce que l'on attend de lui. **Pour le Psaume 14, on invoque Dieu comme le Dieu miséricordieux.** La femme, ou le couple, dit : « Dieu miséricordieux, accorde-moi des enfants. » Puis elle récite le psaume et présente sa demande.
 
-**Pour une femme qui va accoucher, il y a le Psaume 1.** Il dit de l'homme qui aime la parole de Dieu : « Il est comme un arbre planté près d'un courant d'eau, qui donne son fruit en sa saison » (Psaume 1, verset 3). Le fruit en sa saison, c'est la naissance qui arrive au bon moment, sans retard et sans drame. La femme prend une bouteille d'eau minérale. Avant de pratiquer le psaume sur cette eau, elle invoque trois fois **le Dieu créateur**, celui qui donne la vie, afin qu'il l'aide à mettre son enfant au monde. Puis elle récite le Psaume 1 sur cette eau.
+**Pour une femme qui va accoucher, il y a le Psaume 1.** Il dit de l'homme qui aime la parole de Dieu : « Il est comme un arbre planté près d'un courant d'eau, qui donne son fruit en sa saison » (Psaume 1, verset 3). Le fruit en sa saison, c'est la naissance qui arrive au bon moment, sans retard et sans drame. La femme prend une bouteille d'eau minérale. Avant de pratiquer le psaume sur cette eau, elle invoque trois fois **le Dieu créateur**, celui qui donne la vie, afin qu'il l'aide à mettre son enfant au monde. Puis elle récite le Psaume 1 sur cette eau, **et elle boit cette eau.**
 
 ## Effacer une faute : le Psaume 51
 
@@ -921,7 +921,7 @@ Mais n'oubliez jamais que **le nombre ne remplace pas la repentance.** David n'a
 - **Le Psaume 141** chasse l'esprit de peur. Le 141, pas le 41.
 - **Les Psaumes 45 et 46**, récités sur du miel tenu et partagé à deux, pour la paix et l'amour dans le couple.
 - **Le Psaume 91** guérit : un verre d'eau levé vers le ciel entre 3 heures et 5 heures 30, le psaume en entier, l'eau devenue le sang de Jésus, bue à jeun.
-- **Le Psaume 14** pour avoir des enfants, en invoquant le Dieu miséricordieux. **Le Psaume 1** pour accoucher, récité sur de l'eau, en invoquant le Dieu créateur.
+- **Le Psaume 14** pour avoir des enfants, en invoquant le Dieu miséricordieux. **Le Psaume 1** pour accoucher, récité sur de l'eau que la femme boit ensuite, en invoquant le Dieu créateur.
 - **Le Psaume 51**, récité cinquante et une fois, efface une faute. **Mais le nombre ne remplace pas la repentance.**
 
 ## Vers la quatrième partie

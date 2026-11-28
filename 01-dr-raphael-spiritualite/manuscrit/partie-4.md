@@ -279,7 +279,7 @@ C'est pourquoi **il faut donner sa dîme dans une église où l'atmosphère est 
 
 Préparez-vous donc avant d'aller à l'église. **Priez avant de partir.** Et une fois sur place, restez concentré sur la raison de votre présence. Ne vous laissez pas distraire par l'apparence des autres, par leurs vêtements ou par leur beauté. Vous êtes venu rencontrer Dieu.
 
-Voici enfin un conseil simple. À chaque culte où le Saint-Esprit est présent, **l'Éternel qui guérit passe au milieu de son peuple.** Vous avez peut-être remarqué que beaucoup de grands serviteurs de Dieu gardent une bouteille d'eau au pied de la chaire. Ce n'est pas seulement pour boire. Prenez l'habitude d'apporter, vous aussi, une bouteille d'eau quand vous allez à l'église. Gardez-la près de vous pendant le culte, et buvez-la à la fin.
+Voici enfin un conseil simple. À chaque culte où le Saint-Esprit est présent, **l'Éternel qui guérit passe au milieu de son peuple.** Vous avez peut-être remarqué que beaucoup de grands serviteurs de Dieu gardent une bouteille d'eau au pied de la chaire. Ce n'est pas seulement pour boire. **La puissance de Dieu se manifeste là où il y a de l'eau.** Dès la première page de la Bible, « l'esprit de Dieu se mouvait au-dessus des eaux », et c'est alors que Dieu dit : « Que la lumière soit ! Et la lumière fut » (Genèse 1, versets 2 et 3). Et à Jérusalem, à la piscine de Béthesda, « un ange descendait de temps en temps dans la piscine, et agitait l'eau ; et celui qui y descendait le premier après que l'eau avait été agitée était guéri, quelle que fût sa maladie » (Jean 5, verset 4). Prenez l'habitude d'apporter, vous aussi, une bouteille d'eau quand vous allez à l'église. Gardez-la près de vous pendant le culte, et buvez-la à la fin.
 
 ## Les 90 % : la semence bénie
 

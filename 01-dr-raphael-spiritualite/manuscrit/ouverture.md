@@ -1,3 +1,17 @@
+# Dédicace
+
+*Je dédie ce livre à toute la communauté chrétienne.*
+
+---
+
+# Remerciements
+
+Je remercie le Saint-Esprit, celui qui m'a enseigné tant de choses dans le secret.
+
+Je remercie également le prophète Amagou Zahui, depuis la Côte d'Ivoire.
+
+---
+
 # Avant-propos
 
 Pendant longtemps, j'ai hésité à enseigner ce que vous allez lire.
@@ -8,7 +22,7 @@ Mais j'ai vu une autre souffrance, plus grande encore. **J'ai vu des enfants de 
 
 C'est pour eux que j'ai écrit ce livre.
 
-Je ne vous parle pas pour parler. Ce que je vous transmets ici, je ne l'ai pas inventé. **La plus grande partie, c'est le Saint-Esprit qui me l'a enseignée.** Le reste, je l'ai reçu des hommes de Dieu que le Seigneur a placés sur mon chemin, et en premier lieu de mon père spirituel. Je n'ai fait que recevoir, puis transmettre.
+Je ne vous parle pas pour parler. Ce que je vous transmets ici, je ne l'ai pas inventé. **La plus grande partie, c'est le Saint-Esprit qui me l'a enseignée.** Le reste, je l'ai reçu des hommes de Dieu que le Seigneur a placés sur mon chemin. Je n'ai fait que recevoir, puis transmettre.
 
 Vous trouverez dans ces pages des choses que vous n'avez peut-être jamais entendues : comment se présenter à l'eau et à la terre, comment ouvrir la puissance d'un psaume, comment porter une injustice devant le tribunal de Dieu, comment consacrer sa dîme. Certaines vous surprendront. Je vous demande de les recevoir avec un esprit calme et ouvert, la Bible à la main. Vérifiez chaque verset. Priez sur chaque enseignement. Et gardez ce qui édifie votre vie avec Dieu.
 
@@ -16,7 +30,7 @@ Vous trouverez dans ces pages des choses que vous n'avez peut-être jamais enten
 
 Je prie pour que ce livre vous ouvre les yeux comme Dieu ouvrit autrefois les yeux du serviteur d'Élisée, et que vous voyiez, vous aussi, que ceux qui sont avec vous sont plus nombreux que ceux qui sont contre vous.
 
-**Dr Raphaël**
+**Docteur Raphaël AGBEDISSE**
 
 ---
 

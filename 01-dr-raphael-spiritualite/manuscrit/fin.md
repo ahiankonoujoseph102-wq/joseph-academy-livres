@@ -102,7 +102,7 @@ Ces tableaux rassemblent ce qui est enseigné dans le livre. Ils servent à retr
 | **Soir et nuit** (de 18 heures au lever du jour) | 2, 3, 7, 16, 23, 35, 54, 110 et 91 |
 | **Psaumes de combat** | 2, 3, 4, 5, 7, 16, 23, 27 et 91 |
 
-**Règle :** **jamais de psaume de combat en plein soleil.** Et après un combat, faites toujours quelque chose qui attire le bonheur.
+**Règle :** **jamais de psaume de combat en plein soleil.** Le Psaume 23 se prie tôt le matin pour la bénédiction, et le soir pour le combat. Après un combat, faites toujours quelque chose qui attire le bonheur.
 
 ## Annexe 3 — Les psaumes selon votre besoin
 
@@ -148,6 +148,22 @@ Ces tableaux rassemblent ce qui est enseigné dans le livre. Ils servent à retr
 
 ---
 
+# À propos de l'auteur
+
+**Docteur Raphaël AGBEDISSE** vit à Lomé, au Togo. Il exerce son ministère au sein de **Rapha Ministry** depuis 2021.
+
+Il enseigne la connaissance du monde spirituel, l'usage des psaumes dans la prière et la mystique de la dîme, afin que les enfants de Dieu cessent de souffrir par ignorance et apprennent à impacter le physique par le spirituel.
+
+Il est l'auteur de deux livres : *Le Pouvoir des prières mystiques* et *Révélation et mystère sur les jours de naissance*.
+
+**Pour le contacter ou suivre ses enseignements :**
+
+- Téléphone : +228 98 09 53 37
+- YouTube et Facebook : Docteur Raphaël
+- TikTok : Rapha ministry
+
+---
+
 # Quatrième de couverture
 
 ## À LA DÉCOUVERTE DES SECRETS ET CODES DU MONDE SPIRITUEL
@@ -171,4 +187,4 @@ Chaque chapitre s'appuie sur la Bible et se termine par des exercices pratiques.
 
 **Un livre à vivre, et pas seulement à lire.**
 
-**Le Dr Raphaël** enseigne la connaissance spirituelle sur sa chaîne YouTube « La Connaissance spirituelle ». Il est l'auteur de *Le Pouvoir des prières mystiques* et de *Révélations et mystères sur les jours de naissance*.
+**Docteur Raphaël AGBEDISSE** vit à Lomé, au Togo. Il exerce son ministère au sein de Rapha Ministry depuis 2021. Il est l'auteur de *Le Pouvoir des prières mystiques* et de *Révélation et mystère sur les jours de naissance*.
