@@ -657,3 +657,20 @@ Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
   complet, sans abréviation « Dr ».
 - À signaler : Jean 5, 4 manque dans les plus anciens manuscrits ; la TOB,
   que lit l'auteur, le met en note.
+
+## 28 novembre 2026 — biographie et photos de l'auteur
+
+- Nom du prophète : **Wilfried Amagou Zahui** (Joseph). Remerciements corrigés.
+- Jean 5, 4 : Joseph me laisse choisir. **Gardé** avec Genèse 1, 2-3 :
+  c'est la référence donnée par l'auteur, et le livre cite la Louis Segond
+  1910, qui contient ce verset.
+- Biographie envoyée par l'auteur, reprise en français simple dans
+  « À propos de l'auteur » (fin.md). Il écrit lui-même « Docteur en
+  théologie » : gardé, puisque c'est son texte (Joseph avait demandé de ne
+  pas poser la question, pas de cacher ce que l'auteur écrit).
+- **Retiré de la biographie** : le paragraphe « À travers ce livre, il
+  partage des clés sur la prière en fonction des mouvements lunaires ».
+  Ce livre ne contient rien sur la lune. Signalé à Joseph.
+- Photos : 4 reçues, enregistrées dans sources/photos/. Photo 4 (de face,
+  souriant, mi-corps) choisie pour « À propos de l'auteur ». Photo 1 (main
+  levée, en prière) proposée pour la couverture ou la quatrième.

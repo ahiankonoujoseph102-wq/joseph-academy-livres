@@ -150,11 +150,23 @@ Ces tableaux rassemblent ce qui est enseigné dans le livre. Ils servent à retr
 
 # À propos de l'auteur
 
-**Docteur Raphaël AGBEDISSE** vit à Lomé, au Togo. Il exerce son ministère au sein de **Rapha Ministry** depuis 2021.
+![](../sources/photos/photo-auteur-4.png){width=6cm}
 
-Il enseigne la connaissance du monde spirituel, l'usage des psaumes dans la prière et la mystique de la dîme, afin que les enfants de Dieu cessent de souffrir par ignorance et apprennent à impacter le physique par le spirituel.
+**Docteur Raphaël AGBEDISSE**
 
-Il est l'auteur de deux livres : *Le Pouvoir des prières mystiques* et *Révélation et mystère sur les jours de naissance*.
+*Fondateur de Rapha Ministry, docteur en théologie, enseignant de la Parole de Dieu, prophète et auteur*
+
+Né à Lomé, au Togo, le Docteur Raphaël est enseignant de la Parole de Dieu, prophète, auteur et fondateur de **Rapha Ministry**, qu'il conduit depuis 2021. Son parcours spirituel a été marqué par une quête précoce des réalités spirituelles, puis par sa conversion au christianisme et par un engagement toujours plus grand dans l'œuvre de Dieu. Il porte une passion profonde pour Jésus-Christ, pour les Saintes Écritures et pour les profondeurs de la vie spirituelle chrétienne.
+
+Homme de recherche, d'enseignement, de prière et d'évangélisation, il consacre son ministère à l'édification du corps du Christ, à la transmission des connaissances bibliques et à la manifestation de la puissance de Dieu par le Saint-Esprit.
+
+Sa vision repose sur une conviction : **l'Évangile ne doit pas seulement être annoncé. Il doit aussi être enseigné dans ses profondeurs, compris dans toute sa richesse et vécu dans la puissance du Saint-Esprit.**
+
+Ce qu'il a reçu dans le jeûne et la prière, il le transmet sur les réseaux sociaux, dans des formations spirituelles et dans des accompagnements personnels.
+
+Il est l'auteur de deux autres livres : *Le Pouvoir des prières mystiques* et *Révélation et mystère sur les jours de naissance*.
+
+> **« Enseigner l'Évangile sans enseigner son mystère rend le chrétien faible. »**
 
 **Pour le contacter ou suivre ses enseignements :**
 
@@ -187,4 +199,4 @@ Chaque chapitre s'appuie sur la Bible et se termine par des exercices pratiques.
 
 **Un livre à vivre, et pas seulement à lire.**
 
-**Docteur Raphaël AGBEDISSE** vit à Lomé, au Togo. Il exerce son ministère au sein de Rapha Ministry depuis 2021. Il est l'auteur de *Le Pouvoir des prières mystiques* et de *Révélation et mystère sur les jours de naissance*.
+**Docteur Raphaël AGBEDISSE**, né à Lomé, au Togo, est enseignant de la Parole de Dieu, prophète et fondateur de Rapha Ministry. Il est l'auteur de *Le Pouvoir des prières mystiques* et de *Révélation et mystère sur les jours de naissance*.

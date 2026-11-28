@@ -8,7 +8,7 @@
 
 Je remercie le Saint-Esprit, celui qui m'a enseigné tant de choses dans le secret.
 
-Je remercie également le prophète Amagou Zahui, depuis la Côte d'Ivoire.
+Je remercie également le prophète Wilfried Amagou Zahui, depuis la Côte d'Ivoire.
 
 ---
 
