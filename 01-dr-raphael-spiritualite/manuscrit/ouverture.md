@@ -1,14 +1,26 @@
 # Dédicace
 
-*Je dédie ce livre à toute la communauté chrétienne.*
+*À Dieu le Père, à Jésus-Christ, son Fils, et au Saint-Esprit, de qui viennent toute connaissance et toute révélation.*
+
+*À toute la communauté chrétienne, à travers le monde.*
+
+*À chaque enfant de Dieu qui prie sans voir de résultat, qui se bat sans connaître les règles du combat, et qui a soif de comprendre les mystères du royaume de Dieu.*
+
+*Aux serviteurs de Dieu qui ne se contentent pas d'annoncer l'Évangile, mais qui l'enseignent dans ses profondeurs.*
+
+*Que ce livre soit pour chacun de vous ce que la Parole fut pour le psalmiste : « une lampe à mes pieds, et une lumière sur mon sentier » (Psaume 119, verset 105).*
 
 ---
 
 # Remerciements
 
-Je remercie le Saint-Esprit, celui qui m'a enseigné tant de choses dans le secret.
+Toute la gloire revient à Dieu. C'est lui qui donne la sagesse, et c'est de sa bouche que sortent la connaissance et l'intelligence. Rien de ce que contient ce livre ne vient de moi seul.
 
-Je remercie également le prophète Wilfried Amagou Zahui, depuis la Côte d'Ivoire.
+Je remercie le **Saint-Esprit**, mon premier enseignant, celui qui m'a enseigné tant de choses dans le secret, dans le jeûne et dans la prière. La plus grande partie de ce que vous allez lire, c'est lui qui me l'a révélée. Sans lui, ce livre n'existerait pas.
+
+Je remercie également le **prophète Wilfried Amagou Zahui**, depuis la Côte d'Ivoire, pour tout ce que j'ai reçu de lui sur le chemin de la foi.
+
+Je remercie enfin tous ceux qui suivent mes enseignements. Leurs questions, leur soif de connaître et leurs témoignages m'ont poussé à mettre ces choses par écrit, pour qu'elles atteignent un plus grand nombre.
 
 ---
 

@@ -702,3 +702,17 @@ Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
 - Environ 220 pages au rendu LibreOffice (peut varier un peu dans Word).
   Tranche estimée à environ 11 mm sur papier 80 g, à confirmer par
   l'imprimeur.
+
+## 28 novembre 2026 — dédicace et remerciements réécrits
+
+- Joseph : la phrase de l'auteur (« à toute la communauté chrétienne »)
+  était une directive. Dédicace développée dans le style des grands
+  pasteurs : la Trinité, la communauté chrétienne, l'enfant de Dieu qui
+  prie sans résultat, les serviteurs de Dieu ; Psaume 119, 105 vérifié.
+- Remerciements développés : gloire à Dieu (allusion à Proverbes 2, 6),
+  le Saint-Esprit (jeûne et prière, d'après sa biographie), le prophète
+  Wilfried Amagou Zahui, ceux qui suivent ses enseignements. Aucun nom
+  ajouté.
+- Livre reconstruit, PDF renvoyé. Contrôle : tous les mots du manuscrit
+  sont présents dans le PDF (seuls écarts : mots coupés en fin de ligne).
+- Joseph fera lui-même la mise en page finale dans Word.
