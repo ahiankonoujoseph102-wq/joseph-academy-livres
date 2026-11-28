@@ -674,3 +674,12 @@ Transcription : sources/transcription-15.md (1 min 14). Ce qu'il dit :
 - Photos : 4 reçues, enregistrées dans sources/photos/. Photo 4 (de face,
   souriant, mi-corps) choisie pour « À propos de l'auteur ». Photo 1 (main
   levée, en prière) proposée pour la couverture ou la quatrième.
+
+## 28 novembre 2026 — couverture
+
+- Joseph : les contacts de l'auteur restent dans « À propos de l'auteur »,
+  **jamais sur la quatrième de couverture** (pas professionnel, les grands
+  pasteurs ne le font pas). Vérifié : la quatrième n'en contient pas.
+- Joseph crée la couverture avec ChatGPT. Prompts fournis (première et
+  quatrième). Photo 1 (main levée) pour la première, photo 4 en petit
+  pour la quatrième.
